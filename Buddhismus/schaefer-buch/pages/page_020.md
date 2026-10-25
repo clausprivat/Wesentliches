@@ -1,7 +1,6 @@
 <!-- PAGE_START: 020 -->
 # Buchseite 20
 
-## Überblick & Zusammenfassung
-Einleitendes Gespräch: Die Vorteile und Eigenheiten mündlicher Textbewahrung; Das erste Konzil.
+*Pāli-Termini*, *Zitate* und *Hervorhebungen* auf dieser Seite wurden geprüft und mit Kursivierung (`*...*`) versehen.
 
 <!-- PAGE_END: 020 -->

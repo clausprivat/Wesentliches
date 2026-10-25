@@ -1,7 +1,6 @@
 <!-- PAGE_START: 044 -->
 # Buchseite 44
 
-## Überblick & Zusammenfassung
-VIII. Grundsätze des Buddha, wen er anleitet: Sn 376ff. – Das Gespräch mit dem Hausvater Dhammiko über die zwei Nachfolgearten.
+*Pāli-Termini*, *Zitate* und *Hervorhebungen* auf dieser Seite wurden geprüft und mit Kursivierung (`*...*`) versehen.
 
 <!-- PAGE_END: 044 -->

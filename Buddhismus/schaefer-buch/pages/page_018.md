@@ -1,7 +1,6 @@
 <!-- PAGE_START: 018 -->
 # Buchseite 18
 
-## Überblick & Zusammenfassung
-Einleitendes Gespräch: Zuverlässigkeit der mündlichen Überlieferungskultur im alten Indien.
+*Pāli-Termini*, *Zitate* und *Hervorhebungen* auf dieser Seite wurden geprüft und mit Kursivierung (`*...*`) versehen.
 
 <!-- PAGE_END: 018 -->

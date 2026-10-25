@@ -1,7 +1,6 @@
 <!-- PAGE_START: 028 -->
 # Buchseite 28
 
-## Überblick & Zusammenfassung
-I. Das Ziel der Lehre: Klärung des Begriffs Nibbāna/Nirvana; Nicht Auslöschung, sondern Erlöschen des Daseinsbrandes.
+*Pāli-Termini*, *Zitate* und *Hervorhebungen* auf dieser Seite wurden geprüft und mit Kursivierung (`*...*`) versehen.
 
 <!-- PAGE_END: 028 -->

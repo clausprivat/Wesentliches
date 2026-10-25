@@ -7,7 +7,7 @@ Vorwort | 9
 
 I. Das Ziel der Lehre | 30
 II. Der Weg zur Erlösung | 31
-III. Die drei Abschnitte der Heilsentwicklung. Fünf Eigenschaften (dhammā) zu Heilssinnen (indriya) entwickeln | 32
+III. Die drei Abschnitte der Heilsentwicklung. Fünf Eigenschaften (*dhammā*) zu Heilssinnen (*indriya*) entwickeln | 32
 IV. Die verschiedene Gangart von Asketen und in der Welt Lebenden | 33
 V. Anleitungen des Buddha für Nicht-Asketen | 36
 VI. Laien-Buddhismus? | 37

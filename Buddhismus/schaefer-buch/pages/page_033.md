@@ -1,7 +1,6 @@
 <!-- PAGE_START: 033 -->
 # Buchseite 33
 
-## Überblick & Zusammenfassung
-V. Die verschiedene Gangart: Unterschiedliche Voraussetzungen und Lebensformen bei Mönchen und Hausleuten.
+*Pāli-Termini*, *Zitate* und *Hervorhebungen* auf dieser Seite wurden geprüft und mit Kursivierung (`*...*`) versehen.
 
 <!-- PAGE_END: 033 -->

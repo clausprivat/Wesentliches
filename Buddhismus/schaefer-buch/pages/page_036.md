@@ -1,7 +1,6 @@
 <!-- PAGE_START: 036 -->
 # Buchseite 36
 
-## Überblick & Zusammenfassung
-VI. Anleitungen des Buddha für Nicht-Asketen: Textauswahl aus den fünf Nikāyas des Sutta-Pitaka.
+*Pāli-Termini*, *Zitate* und *Hervorhebungen* auf dieser Seite wurden geprüft und mit Kursivierung (`*...*`) versehen.
 
 <!-- PAGE_END: 036 -->

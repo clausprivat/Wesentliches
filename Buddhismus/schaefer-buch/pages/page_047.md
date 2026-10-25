@@ -1,7 +1,6 @@
 <!-- PAGE_START: 047 -->
 # Buchseite 47
 
-## Überblick & Zusammenfassung
-VIII. Grundsätze des Buddha, wen er anleitet: Gründe für den Einblick der Hausleute in die Mönchsübungen.
+*Pāli-Termini*, *Zitate* und *Hervorhebungen* auf dieser Seite wurden geprüft und mit Kursivierung (`*...*`) versehen.
 
 <!-- PAGE_END: 047 -->

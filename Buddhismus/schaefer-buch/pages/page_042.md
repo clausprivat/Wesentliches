@@ -1,7 +1,6 @@
 <!-- PAGE_START: 042 -->
 # Buchseite 42
 
-## Überblick & Zusammenfassung
-VIII. Grundsätze des Buddha, wen er anleitet: Bedeutung des Begriffs brahmacariya im Kontext des Hauslebens.
+*Pāli-Termini*, *Zitate* und *Hervorhebungen* auf dieser Seite wurden geprüft und mit Kursivierung (`*...*`) versehen.
 
 <!-- PAGE_END: 042 -->

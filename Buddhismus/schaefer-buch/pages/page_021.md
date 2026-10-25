@@ -1,7 +1,6 @@
 <!-- PAGE_START: 021 -->
 # Buchseite 21
 
-## Überblick & Zusammenfassung
-Einleitendes Gespräch: Besonderheiten der Lehre: Transparenz, Überprüfbarkeit und innere Widerspruchsfreiheit.
+*Pāli-Termini*, *Zitate* und *Hervorhebungen* auf dieser Seite wurden geprüft und mit Kursivierung (`*...*`) versehen.
 
 <!-- PAGE_END: 021 -->

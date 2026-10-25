@@ -1,7 +1,6 @@
 <!-- PAGE_START: 022 -->
 # Buchseite 22
 
-## Überblick & Zusammenfassung
-Einleitendes Gespräch: Prüfmaßstab der Lehre im eigenen Leben; Die Zunahme heilstauglicher Eigenschaften.
+*Pāli-Termini*, *Zitate* und *Hervorhebungen* auf dieser Seite wurden geprüft und mit Kursivierung (`*...*`) versehen.
 
 <!-- PAGE_END: 022 -->

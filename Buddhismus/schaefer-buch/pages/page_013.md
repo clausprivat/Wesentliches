@@ -1,5 +1,5 @@
 <!-- PAGE_START: 013 -->
-nichts, davon sage auch ich: Das gibt es nicht. Wo in der Welt die Weisen übereinstimmen: Das gibt es, davon sage auch ich: Das gibt es.
+*nichts, davon sage auch ich: Das gibt es nicht. Wo in der Welt die Weisen übereinstimmen: Das gibt es, davon sage auch ich: Das gibt es.*
 
 Von Herzen Dank sage ich den Freunden, ohne die es dieses Buch nicht geben könnte: Paul Debes, dem Gründer des Buddhistischen Seminars, der mich vor bald einem halben Jahrhundert an das Wichtigste im Leben: die Lehre des Buddha, herangeführt und bis heute darin unschätzbar gefördert hat, Ingetraut Anders-Debes, ohne deren jahrzehntelange selbstlose Hilfe als Herausgeberin, Autorin, Gesprächspartnerin, Bewahrerin und Verwalterin seines Lebenswerks er seine Arbeit nicht hätte tun können, ferner - in alphabetischer Folge - Heinz Fleck für freundschaftliche Förderung, Hellmuth und Uta Hecker für jahrelange konstruktive Anregungen¹³, Kurt Onken, dem Gründer und Präsidenten seiner Stiftung Haus der Besinnung¹⁴, das die heitere Stille für viele Arbeiten am Buch bot, für seine großzügige Förderung und allen, die durch Austausch und Da-sein geholfen haben.¹⁵
 

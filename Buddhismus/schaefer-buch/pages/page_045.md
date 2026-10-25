@@ -1,7 +1,6 @@
 <!-- PAGE_START: 045 -->
 # Buchseite 45
 
-## Überblick & Zusammenfassung
-VIII. Grundsätze des Buddha, wen er anleitet: Notwendigkeit spezifischer Führungsanleitungen für das Leben in der Häuslichkeit.
+*Pāli-Termini*, *Zitate* und *Hervorhebungen* auf dieser Seite wurden geprüft und mit Kursivierung (`*...*`) versehen.
 
 <!-- PAGE_END: 045 -->

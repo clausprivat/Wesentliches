@@ -1,7 +1,6 @@
 <!-- PAGE_START: 023 -->
 # Buchseite 23
 
-## Überblick & Zusammenfassung
-Einleitendes Gespräch: Die Haltung gegenüber 'übernatürlichen' Elementen in den Lehrreden.
+*Pāli-Termini*, *Zitate* und *Hervorhebungen* auf dieser Seite wurden geprüft und mit Kursivierung (`*...*`) versehen.
 
 <!-- PAGE_END: 023 -->

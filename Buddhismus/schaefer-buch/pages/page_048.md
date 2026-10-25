@@ -1,7 +1,6 @@
 <!-- PAGE_START: 048 -->
 # Buchseite 48
 
-## Überblick & Zusammenfassung
-VIII. Grundsätze des Buddha, wen er anleitet: Typischer Verlauf des Aufbruchs in die Hauslosigkeit.
+*Pāli-Termini*, *Zitate* und *Hervorhebungen* auf dieser Seite wurden geprüft und mit Kursivierung (`*...*`) versehen.
 
 <!-- PAGE_END: 048 -->

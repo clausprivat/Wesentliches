@@ -1,7 +1,6 @@
 <!-- PAGE_START: 041 -->
 # Buchseite 41
 
-## Überblick & Zusammenfassung
-VIII. Grundsätze des Buddha, wen er anleitet: Warum die Lehre auch Nicht-Asketen in voller Tiefe dargelegt wurde.
+*Pāli-Termini*, *Zitate* und *Hervorhebungen* auf dieser Seite wurden geprüft und mit Kursivierung (`*...*`) versehen.
 
 <!-- PAGE_END: 041 -->

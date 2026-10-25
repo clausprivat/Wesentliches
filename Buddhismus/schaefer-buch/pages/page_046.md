@@ -1,7 +1,6 @@
 <!-- PAGE_START: 046 -->
 # Buchseite 46
 
-## Überblick & Zusammenfassung
-VIII. Grundsätze des Buddha, wen er anleitet: Die Stufe des Nichtwiederkehrers im Hausstand.
+*Pāli-Termini*, *Zitate* und *Hervorhebungen* auf dieser Seite wurden geprüft und mit Kursivierung (`*...*`) versehen.
 
 <!-- PAGE_END: 046 -->

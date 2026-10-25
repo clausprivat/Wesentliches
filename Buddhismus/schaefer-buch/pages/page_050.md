@@ -1,7 +1,6 @@
 <!-- PAGE_START: 050 -->
 # Buchseite 50
 
-## Überblick & Zusammenfassung
-VIII. Grundsätze des Buddha, wen er anleitet: Zusammenfassung des einleitenden Abschnitts und Ausblick auf die weiteren Gespräche.
+*Pāli-Termini*, *Zitate* und *Hervorhebungen* auf dieser Seite wurden geprüft und mit Kursivierung (`*...*`) versehen.
 
 <!-- PAGE_END: 050 -->
