@@ -1,6 +1,18 @@
 <!-- PAGE_START: 029 -->
-# Buchseite 29
+alles, ihre Risiken. Aber einer ihrer Vorteile ist: Ich muß dabei auf die Ober- und Untertöne in mir selber lauschen. Diese ständige lebendige Überprüfung der Übersetzung ist daher zugleich Arbeit an mir selber. Den Haupteinwand gegen Umschreibungen: der Übersetzer habe keine Übersetzung, sondern eine Interpretation geliefert, hört man übrigens – nicht ohne Grund – besonders häufig in bezug auf den unvergleichlichen Erstübersetzer der Lehrreden, K. E. Neumann, obwohl gerade er das Prinzip vertrat: »ein Paliwort – ein deutsches Wort«.⁷¹
 
-*Pāli-Termini*, *Zitate* und *Hervorhebungen* auf dieser Seite wurden geprüft und mit Kursivierung (`*...*`) versehen.
+RUTH: Dein Übersetzungsgrundsatz leuchtet mir ein.
 
+HANS: Mir auch. Aber könnten sich die Übersetzer nicht wenigstens da, wo umschrieben werden muß, auf gleiche Umschreibungen einigen?
+
+FRITZ: Wie stellst du dir das bei verstorbenen Übersetzern vor? Aber auch vom Grundsatz her teile ich Deine Sorge nicht, Hans: Wer sich mehr nach der Sache als nach den Worten richtet, dem mag eine lebendige Vielfalt von Übersetzern, die um den treffendsten Ausdruck ringen, sogar eher erweiterte Verständnismöglichkeiten eröffnen als eine vereinbarte »Sprachregelung«. Wie oft versteht man etwas, das man lange nicht begreifen konnte, fast mühelos, wenn es einem jemand in etwas anderen Worten sagt. Der deutsche Nachfolger des Erwachten vernimmt ja sowieso die Lehre in einem Gemisch von vielerlei Ausdrucksweisen: Mittlere und Längere Sammlung und die Sammlungen in Versen liest er z. B. meist in Neumanns Übersetzung, die Verse des *Suttanipāta* heute vielleicht öfter in der auf besondere Treue bedachten Übersetzung Nyanaponikas, die Angereihte Sammlung in der von Nyāṇaponika gründlich überarbeiteten Übersetzung von Nyanatiloka, die Gruppierte Sammlung (*Saṁyutta-Nikāya*) in ihren verschiedenen Teilen von verschiedenen Übersetzern. Und von vielen Reden aus allen diesen Sammlungen stehen in den Veröffentlichungen des Buddhistischen Seminars besonders einfühlende Neuübersetzungen zur Verfügung. Warum sollte es da nicht dem Verständnis dienen, wenn das Buch den vielen Übersetzungen nach dem verbreiteten »Oberbegriffs-Prinzip« eigene Übersetzungen nach dem seltener angewandten »Umschreibungsprinzip« zur Seite stellt?
+
+RUTH: Ich meine auch, daß das die Flexibilität beim Verstehen eher fördert. Aber ich hätte eine andere Frage zu deinen Übersetzungen: Die buddhistischen Texte enthalten viele Wiederholungen. Die einen empfinden sie als ermüdend, die andern als unentbehrlich. Wie hältst du es damit?
+
+FRITZ: Die alten Inder legten mehr Wert auf richtiges Verstehen als auf Abwechslung des Ausdrucks. Das täte auch uns oft gut. So wiederholten zur Zeit des Buddha zu Beginn eines Dialogs beide Gesprächspartner ihre eigene These und die des Partners dreimal wörtlich, um sicher zu gehen, einander richtig verstanden zu haben. Bei uns debattiert man oft mit Wucht aneinander vorbei. Oder wenn man einem anderen weitergab, was ein Dritter gesagt hatte, dann tat man das wortwörtlich und nicht in indirekter Rede mit eigenen Worten, damit nicht eigene Deutungen des Übermittlers die Botschaft verfälschten. Auch wird in den Texten ein wiederkehrender Zusammenhang, der für mehrere verschiedene Vorgänge, Dinge oder Eigenschaften gilt, nicht nur etwa beim ersten Mal voll gebracht, danach aber nur noch abgekürzt mit Worten wie: »Und hierfür gilt das gleiche«, sondern er wird jedesmal im vollen Wortlaut wiederholt. Nicht nur, daß er sich dadurch klarer einprägt – heute weiß mancher Zuhörer beim vierten Fall schon nicht mehr richtig, was das Gleiche ist, das auch hier gelten soll. – Vor allem wird durch Wiederholung die Fehlsuggestion vermieden, der im vollen Wortlaut genannte Anwendungsfall sei wichtiger als die abgekürzten Fälle. Oft wird auch die volle Tragweite eines allgemeineren Zusammenhangs dem
+
+---
+⁷¹ Vgl. *HHKEN*, S. 394 ff.
+
+29
 <!-- PAGE_END: 029 -->

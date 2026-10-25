@@ -1,6 +1,19 @@
 <!-- PAGE_START: 023 -->
-# Buchseite 23
+Nur unter indologischen »Nichtfachleuten« wird noch die Zuverlässigkeit der schriftlichen Überlieferung im Verhältnis zur mündlichen überschätzt. Stellen wir uns vor, alle Reden des Buddha wären sofort aufgeschrieben worden: Wüßten wir dann sicher, ob alles, was im Protokoll steht, genau so vom Erwachten selber gesagt worden ist? Der Protokollant kann etwas mißverstehen, ermüden oder sich verschreiben. Außerdem wohnt jedem Menschen ein meist unbewußtes »Korrektursystem« inne. Das verschlimmbessert bei gleichlautenden Begriffsreihen vom Redner ausnahmsweise gewollte Abweichungen unbemerkt im Sinn der Gewohnheit. Und wenn ein Schreiber, allein in stiller Klause, einen Abschreibfehler macht, merkt es niemand. Bei mündlicher Überlieferung, wenn ganze Rezitationsschulen gemeinsam einen Text laut lernen, wird jeder Fehler sofort gehört, wie wenn ein Chorsänger falsch singt.
 
-*Pāli-Termini*, *Zitate* und *Hervorhebungen* auf dieser Seite wurden geprüft und mit Kursivierung (`*...*`) versehen.
+HANS: Gut, von der Sprachwissenschaft her können also im Prinzip heute keine fachlichen Bedenken gegen die Treue der Überlieferung geltendgemacht werden. Aber du sagst ja selber, jede Überlieferung enthält Fehler. Wie kann man da die Echtheit der Überlieferung prüfen?
 
+FRITZ: Wenn es um die Überlieferung einer Lehre ginge, die schon von den Zeitgenossen nicht richtig verstanden worden wäre oder auf falschen Voraussetzungen beruhen würde oder in sich widersprüchlich oder sonstwie irrig wäre, dann wäre schwer zu unterscheiden, ob der Fehler an der Lehre oder an der Überlieferung liegt. Aber hier zeigen sich eben bei der Lehre des Buddha Besonderheiten.
+
+HANS: Was für Besonderheiten?
+
+FRITZ: Drei Besonderheiten:
+
+1.) Die erste Besonderheit zeigt ein Vergleich mit Jesus: Jesus war nur eine zweieinhalbjährige Lehrtätigkeit beschieden. Die Menschen – sogar seine engsten Jünger – verstanden ihn oft nicht.⁵⁵ Der Buddha hat 45 Jahre in vollkommener Klarheit gelehrt vor den Augen und Ohren von Abertausenden vielfach kongenialer, gedächtnisstarker Nachfolger. Nichts ist hinter esoterischen, nur Eingeweihten zugänglichen Symbolen und Mythen verhüllt. Jeder kann die Lehre im eigenen geduldigen schrittweisen Nachvollzug nachprüfen. Ein häuslich lebender früherer Anhänger einer anderen Schule sagte zu Ānando, dem treuen mönchischen Helfer des Erwachten: »*Wunderbar, Herr, einmalig, Herr. Es ist also möglich, ohne die eigene Lehre in den Himmel zu heben und die Lehre der anderen herabzusetzen, sachlich auf dem Gebiet der Wahrheit zu bleiben: das Ziel wurde gezeigt, und man wurde selber hingeführt!*« (A III, 73) Der Buddha ist also verstanden worden so gut, daß, wie D 14m zeigt, etwa 1.250 seiner Nachfolger nach seinen eigenen Angaben das höchste Ziel erreicht und viele Zehntausende auch unter den im Haus Lebenden – in Geist und Herz derart unumkehrbare (irreversible) Prozesse in Gang gesetzt haben, daß sie schon lange vor dem höchsten Ziel endgültig die Sicherheit hatten, allem Leiden künftig ein Ende zu machen. Deshalb wurde die Lehre nicht nur vom Buddha selber, sondern auch von vielen seiner Mönche und Nonnen, ja sogar von häuslich lebenden tief erfahrenen Nachfolgern dargelegt. Oft bestätigte der Buddha hinterher solche Darlegungen. Auch hieraus ergeben sich weitere Vergleichsmöglichkeiten. So wurde damals die Lehre fast wie eine Lawine der Wahrheit weiterverbreitet. Als der Leib des Buddha starb, war eine Fülle einander ergänzender Reden und Gespräche in der Erinnerung von Tausenden gedächtnisstarker Ohrenzeugen lebendig, und im Orden galt als eine von zwölf unverzichtbaren Stufen der Wahrheitserkenntnis und -verwirklichung⁵⁶ der Grundsatz, daß die Lehre im Ge-
+
+---
+⁵⁵ Vgl. z. B. Matth. 13,13-15; Mark. 4,13; Luk. 9,45 und 18,34.
+⁵⁶ Vgl. M 95, M 70m.
+
+23
 <!-- PAGE_END: 023 -->

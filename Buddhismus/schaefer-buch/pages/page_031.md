@@ -1,6 +1,18 @@
 <!-- PAGE_START: 031 -->
-# Buchseite 31
+überhaupt nichts: Nur was er selber aus geistiger Einsicht in seine Nichtigkeit und Leerheit losläßt, weil es für ihn über der Erfahrung höheren Wohls seinen Reiz verloren hat, schwindet. Das erklärt der Buddha ausdrücklich in M 14. Auf diesem Weg bildet sich der Geschmack des Herzens zu einem immer feineren Empfinden für ein Wohl, das nicht immer wieder im Daseinsbrand verglühen und durch unvorstellbar lange Leiden überdeckt werden muß. Es gibt freilich Menschen, die sich in innerer Weite und Güte eine Lebensform und eine Einstellung dazu erwirkt und gestaltet haben, daß sie während ihrer Dauer – so weit der Blick reicht – mit Rilke⁷² sagen mögen: »*Hiersein ist herrlich.*« Aber wenn sie der Dimension der Wachheit näherkommen, gewinnt auch und gerade bei ihnen ein Geschmack die Oberhand, der alle übertrifft: der Geschmack der Erlösung: Nir-vāṇa – im Pali *nibbāna* – heißt nicht »Nichts«, sondern wörtlich »Nicht mehr Wehen«; aber was da zu wehen aufhört, ist nicht ein sanftes Lüftchen, sondern ein Daseinsbrand, mit dem verglichen die Feuerstürme von Hiroshima und Nagasaki Kerzenflämmchen waren: Einzig und allein Nirvana ist die Heilung von den Leiden des Daseins und damit die absolute, unzerstörbare Freiheit von Leiden und Abhängigkeit, die Unverletzbarkeit, das höchste Wohl, der höchste Heils-Stand, der unzerstörbare, ewige Friede. Was dann bleibt – ewig bleibt, frei von Leiden –, das kann nicht mehr in die Sprache gefaßt werden. Das unsäglich befreite, unversehrbare Lächeln mancher Buddhastatuen mag eine ferne, ferne Ahnung davon vermitteln. Einzig und allein vom Weg dazu spricht der Buddha – der aus dem Daseinstraum Erwachte: »*Wegweiser nur ist der Vollendete.*«⁷³ Und er spricht darüber nicht nur zu Asketen, sondern auch zu uns in der Welt Lebenden: nicht ausnahmsweise, sondern immer wieder und dann nicht nur andeutungsweise, sondern klar und umfassend. Die Wirkung ist oft so stark, daß mehr als einmal ernsthafte, aktiv im Familien- und Berufsleben stehende Nachfolger hauslosen Pilgern anderer Schulen, ja sogar Mönchen des Buddha, über tiefe Lehrfragen Orientierung geben konnten.⁷⁴
 
-*Pāli-Termini*, *Zitate* und *Hervorhebungen* auf dieser Seite wurden geprüft und mit Kursivierung (`*...*`) versehen.
+Aus vielen Aussagen geht hervor, daß die meisten Mönche und Nonnen die Lehre nicht erst im Orden kennengelernt hatten, sondern noch im Hausleben. Der Erwachte sagt, daß er die gesamte Lehre, die am Anfang, in der Mitte und am Ende hilfreiche, sinn- und wortgetreu, also bis zu ihrem Gipfel, auch den im Haus Lebenden dargelegt hat. Nur so konnten zehntausende in der Welt lebende Nachfolger des Buddha den ersten der noch zu besprechenden Sicherheitsgrade auf dem Heilsweg, den Eintritt in die Heilsströmung erreichen, die *sotāpatti*, auch »Hörerschaft« genannt: eine zumindest blitzaugenblickliche volle geistige Grundanerkenntnis der Lehre aus Einsicht oder innerer Nähe, die den irreversiblen Prozeß des allmählichen Erwachens aus dem Wahntraum einleitet. So kann man durchaus sagen: Wenn es nur die Lehrreden und Anleitungen für in der Häuslichkeit Lebende gäbe, aber keine einzige der Reden an Mönche und Nonnen überliefert wäre, so wäre das zwar ein ganz schmerzlicher Verlust. Aber es bliebe dennoch möglich, zu einem der inneren Sicherheitsgrade zu kommen, bei denen die Entwicklung zum höchsten Ziel unumkehrbar wird. Die Lehren über das Ziel sind also für Hauslose und für häuslich Lebende im Grund gleich.
 
+HANS: Verschieden ist also nur der Weg zur Erlösung?
+
+II. DER WEG ZUR ERLÖSUNG
+
+FRITZ: Nicht einmal das: Auch der Weg ist für Hauslose und in der Welt Lebende im Prinzip
+
+---
+⁷² 7. Duineser Elegie.
+⁷³ M 107, s. im 14. Gespräch.
+⁷⁴ Vgl. A X,93, s. im 11. Gespräch. Ähnliches in A X,94 und S 41,8 und S 48,9 über andere Hausväter.
+
+31
 <!-- PAGE_END: 031 -->

@@ -1,6 +1,19 @@
 <!-- PAGE_START: 030 -->
-# Buchseite 30
+einen Menschen erst beim zweiten, dem andern vielleicht erst beim fünften Anwendungsfall edlich klar. Das geduldige Verfolgen der Wiederholungen beruhigt, und Ruhe fördert das Verständnis. Aus all diesen Gründen hätte ich am liebsten sämtliche Wiederholungen stehengelassen und sogar manche Abkürzungen für stehende Redewendungen wieder rückgängig gemacht, die schon die Sammler in den Palitexten durch das Wiederholungskürzel »*pe*« (für *peyyāla* = Formel) vorgenommen hatten. Ich habe aber eingesehen, daß das für die meisten heutigen Leser unzumutbar wäre und das Buch zu sehr anschwellen ließe. So habe ich schonlich dort zusammengezogen, wo es mir nicht verständniserschwerend erschien, so bei wörtlich wiederholten Botschaften oder Gesprächen oder der im Pali üblichen ständigen Wiederholung der Anrede. Rahmenerzählungen fasse ich oft kurz zusammen. Um den Lesefluß nicht durch Pünktchen oder Anmerkungen zu stören, habe ich das nur da gekennzeichnet, wo es mir unumgänglich schien. Aber wer umgekehrt mit andern Übersetzungen vergleicht und dort manche Stellen nicht findet, die mein Buch enthält, möge nicht gleich an ein falsches Zitat denken: Manche Übersetzer – auch Neumann – haben gelegentlich ganze Absätze, die sie wegen ihres ihnen wunderlich vorkommenden Inhalts für spätere Zutaten hielten, einfach weggelassen. Und wer gar den Pālitext verfolgt, muß manche von mir vollständig wiedergegebene Absätze, die er in der PTS-Ausgabe nicht gleich findet, nach dem unscheinbaren Ergänzungskürzel »pe« aus Verweisungen auf andere Texte zusammenklauben. Dabei hilft manchmal, aber nicht immer, eine Verweisung in einer Fußnote der PTS-Ausgabe. Das habe ich nicht immer ausführlich erklärt. Das Buch soll ja kein wissenschaftliches Werk werden, sondern ein Lese- und Lebebuch.
 
-*Pāli-Termini*, *Zitate* und *Hervorhebungen* auf dieser Seite wurden geprüft und mit Kursivierung (`*...*`) versehen.
+RUTH: Wann wird es denn fertig?
 
+FRITZ: Eigentlich nie: Die Arbeit an diesem Buch ist zugleich Arbeit an mir selber und daher in dem, was mit meinen Eigenheiten zu tun hat, vorläufig und im ständigen Wandel begriffen. Wenn es gedruckt ist, werde ich sicher unentdeckte Fehler finden oder sehen, daß ich vieles rückblickend anders gemacht hätte, so wie ich jetzt schon manches anders sehe und sage als noch vor einem, zwei oder zehn oder vierzig Jahren. Auch wer selber auf einen Berg steigt, kann aus eigener Erfahrung nur die Seite des Berges beschreiben, auf der er selber hinaufwandert. Beim Aufstieg mögen sich jedem wieder andere Ausblicke bieten – auch solche, die einer, der auf einer anderen Seite aufsteigt, nicht oder noch nicht sehen kann. Aber daß es ein Berg ist und daß ein Weg hinaufführt, den man gehen kann, so daß sich die Aussicht allmählich weitet, das merkt, wer ihn geht – und immer wieder bieten sich außer dem ständigen Blick auf den Weg unter unseren Füßen schon von unterwegs Ausblicke zum Gipfel, zum Ziel der Wanderung.
+
+RUTH: Was ist denn eigentlich das Ziel der Lehre? Ist es für Mönche und Nonnen anders als für häuslich Lebende?
+
+I. DAS ZIEL DER LEHRE
+
+FRITZ: In den Hunderten von Reden an und für in der Welt Lebende ist das erklärte Endziel uneingeschränkt dasselbe wie für die Mönche: Nirvana.
+
+HANS: Das Nichts?
+
+FRITZ: Nein, nein, nein. Keineswegs »das Nichts«. Das hieße ja, es würde einem Menschen sofort, so wie er jetzt ist, ohne oder gar gegen seinen Willen alles weggenommen, was ihm zur Zeit lieb ist, so daß nichts mehr von dem für ihn übrig bliebe, bei dem seine jetzt noch vorhandenen Triebe Wohl suchen. Die Nachfolge nach der Lehre des Buddha entlastet ihn nur von dem, was er selber als Leiden im Geist erkennt und schließlich auch im Gemüt empfindet. Selbst das wird ihm nie ohne oder gegen seinen Willen endgültig weggenommen. Weggenommen wird ihm
+
+30
 <!-- PAGE_END: 030 -->
