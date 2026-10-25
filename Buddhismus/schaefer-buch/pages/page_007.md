@@ -1,0 +1,6 @@
+<!-- PAGE_START: 007 -->
+## Vierte Reihe der Gespräche: Der Weg zum Frieden
+12. Gespräch: DURCH TAUGLICHES VERHALTEN (SĪLA) ZUM HERZENS-FRIEDEN (SAMĀDHI) | 594
+13. Gespräch: DURCH INNEREN FRIEDEN (SAMĀDHI) ZUM KLARWISSEN (PAÑÑĀ) | 669
+14. Gespräch: ERLÖSENDES KLARWISSEN | 709
+<!-- PAGE_END: 007 -->
