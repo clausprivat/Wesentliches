@@ -1,0 +1,19 @@
+<!-- PAGE_START: 183 -->
+mungen gehemmt bin: hinter Sinnendingen herjage (1) oder übelwollend bin (2) oder mich in gewohnten Banalitäten treiben lasse (3) oder aufgeregt bin (4) oder während mich Daseinszweifel und -sorgen<sup>11</sup> quälen (5). – Was aber dann über sieben Erwachungsglieder gesagt wird, das ist mir noch nicht klar: Folgen denn diese Erwachungsglieder hintereinander wie die Glieder einer Kette?
+
+**FRITZ:** Nein, Hans, nicht wie die Glieder einer Kette, sondern eher etwa wie die Glieder des Körpers: einmal benutzt man die linke Hand, dann den rechten Fuß, dann den linken Arm, dann das rechte Bein, dann beide Arme, beide Füße, beide Hände und dennoch haben sie ihren festen Platz am Körper. Deshalb widerspricht der Erwachte auch nicht, als der Prinz sagt: »Ist man auch nur zu einem einzigen Erwachungsglied erwachsen, so kann man wirklichkeitsgemäß erkennen und sehen« – wie erst mit allen sieben! Wenn wir später einmal über die Sicherheitsgrade der Heilsgänger sprechen, wird uns das noch deutlicher werden. – Noch eine weitere Rede zeigt, daß der Weg zum Erkennen und Sehen ein allmähliches Wachstum ist und daß kein Grund zur Beunruhigung besteht, wenn einem frühere Einsichten nicht immer zur Verfügung stehen. Sie zeigt auch die überragende Bedeutung der Herzensverfassung für die Verständniskraft. Es ist **A V,193 = S 46,55**.
+
+Da fragt ein Brahmane den Erwachten:
+> »Herr Gotamo, was ist der Grund, was ist die Ursache, daß einem das einemal die seit langem wiederholten Wahrheitsworte nicht in den Sinn kommen, geschweige die nicht wiederholten; und was ist der Grund, was ist die Ursache, daß einem ein andermal Wahrheitsworte in den Sinn kommen, die man gar nicht wiederholt hat, geschweige die wiederholten?«
+
+Der Erwachte antwortet: »Zu einer Zeit, Brahmane, in der das Gemüt von Sinnesreiz (_kāmarāga_), Übelwollen, Sichtreibenlassen in der Weltgewöhnung, Erregung und geistiger Unruhe, Daseinszweifel und -sorgen besessen, vollgesogen bleibt, erkennt man – weil das Gemüt davon umgarnt ist – nicht wirklichkeitsgemäß den Ausweg. Zu einer solchen Zeit erkennt man auch nicht wirklichkeitsgemäß und sieht nicht, was für einen selber gut ist, für die anderen gut ist, dem gemeinsamen Wohl dient. Und selbst Wahrheitsworte, die man seit langem wiederholt hat, kommen einem nicht in den Sinn, geschweige denn die nicht wiederholten. Und ebenso umgekehrt.«
+
+Diese Rede enthält auch Gleichnisse für die fünf Hemmungen; die besprechen wir später.<sup>12</sup> Hier ging es nur darum, deutlich zu machen: In der Heilsentwicklung ist es lange Zeit die Regel, daß man nur manchmal in ungetrübter Herzensverfassung ist und klar sieht, meist aber nicht. Das ist also überhaupt kein Anlaß zu Selbstvorwürfen. Wir werden auch noch wunderbare, selbst mitten im Alltag anwendbare Mittel zur Abhilfe kennenlernen.<sup>13</sup> Auf jeden Fall ist es gut, sich als Ansporn vor Augen zu halten, daß man ja schon einmal klarer gesehen hat und sich nur in eine stillere Verfassung zu bringen braucht, um diese klare Sicht wiederzugewinnen. Daß das eine allmähliche Entwicklung ist, hat der Erwachte ja auch dem jungen Brahmanen in M 95 gezeigt, als er ihm erklärte, wie er weiter vorgehen soll, wenn er einen vertrauenswürdigen Meister gefunden hat. Erinnert ihr euch: Er soll aufmerksam zu ihm herankommen, sich ihm anschließen, zuhören, mit offenen Ohren aufnehmen, das Vernommene im Gedächtnis behalten, gründlich prüfen, daß es sich im Geist erschließt, daraufhin einen neuen Willen fassen, sich konsequent zum
+
+***
+<sup>11</sup> Vgl. M 142, besprochen im 12. Gespräch.  
+<sup>12</sup> Gleichlautend in D 11, besprochen im 10. Gespräch.  
+<sup>13</sup> Vor allem die »sechs unübertrefflichen Erinnerungen«, vgl. unten im 14. Gespräch.
+
+183
+<!-- PAGE_END: 183 -->
