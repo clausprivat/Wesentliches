@@ -1,0 +1,20 @@
+<!-- PAGE_START: 161 -->
+jetzt im direkten Nachvollzug bin ich einigermaßen mitgekommen. Aber ob mir das morgen noch genauso gegenwärtig ist?
+
+**FRITZ:** Kaum. Aber mach dir keine Sorge darüber. Wir sind bei den fünf Zusammenhäufungen im tiefsten Bereich der Lehre, und hier sollte zunächst nur ein erster ahnender Vorblick gegeben werden, worauf die Lehre im Ganzen hinausläuft. Aber der Erwachte hat ja davon auch zu dem Erz-Intellektuellen Saccako gesprochen, und ein ganzer vielköpfiger Familienverband von Adligen hat zugehört. Denen stand hinterher wohl auch nicht gleich wieder alles im Augenblick Eingesehene zur Verfügung. Manchmal müssen wir unseren Geist für kurze Zeit als Spähtrupp weit vorauschicken, in ein Gelände, wo das schwerfällige Gros unseres Herzens mit seinen Lasten und Drängen noch lange nicht folgen kann. Ein militärischer Spähtrupp kann ja auch nicht lange am äußersten Punkt seines Vorstoßes bleiben. Er muß bald zum Gros zurück, um zu berichten, Verpflegung zu fassen und auszuruhen. Aber wenn du so deinen Geist als Spähtrupp weit vorausgeschickt hast, und er ist längst zurück und du hast seinen Bericht fast wieder vergessen, dann weißt du doch immer noch: Da war doch noch etwas, und das hatte ich einmal gesehen. Und wir wissen ja jetzt schon, wie man wieder hinkommen kann: nicht durch Grübeln und Spekulieren, sondern durch Wiederholen und einfache beständige Herzensläuterung, die den Nebel lichtet, den die Blendung aus Hinneigung und Abneigung immer wieder über unser geistiges Gelände legt.
+
+**RUTH:** Fritz, sind denn die fünf Zusammenhäufungen bereits vor dem Buddha bekannt gewesen? Saccako erwähnt sie in dem Gespräch schon, bevor der Buddha etwas davon gesagt hat.
+
+**FRITZ:** Aber Saccako kennt sie nicht als »Zusammenhäufungen«. Er hält sie für »Wesensmerkmale«, die ein im Kern ewig unveränderliches vermeintliches Selbst »hat«. Das ist, wie wenn einer die Erscheinung »Überschallknall« – dieses komplexe System aus Luftdichte, Temperatur, Flug- und Schallgeschwindigkeit und der beim Durchschneiden der Luft entstehenden Wellenfront – einem dahinterstehenden ewigen »Knaller« zuschreiben würde, der erst noch aus diesem vielfältigen Bedingungskomplex den Überschallknall »machen« muß.
+
+**HANS:** Eigentlich ein ziemlich einfältiger Denkfehler!
+
+**FRITZ:** Vorsicht, Hans: Dieser Denkfehler ist nur allzu verständlich. Er beruht auf der Struktur der menschlichen Sprache. Der Innsbrucker Ordinarius für theoretische Physik, A. March, hat einmal darüber gesagt:<sup>48</sup> »Die Sprache stellt die Dinge als Besitzer ihrer Eigenschaften hin... Allgemein läßt sich sagen, daß jedes Ding aus dem – und nur aus dem – besteht, was wir an ihm erleben. Es ist die mehr oder minder konstante Verbindung gewisser sinnlicher Erlebnisse, die uns glauben läßt, daß hinter ihnen etwas sein müsse, das sie zusammenhält.« Das ist geradezu eine Schilderung dessen, was der Erwachte vor 2.500 Jahren als »Glauben an Seinsdarstellung« (_sakkāyaditthi_) bezeichnet hat. Darauf kommen wir noch. Wer aber die Ursachen kennt – in unserm Gleichnis die Ursachen für den Überschallknall –, der durchschaut all diese mythischen Personifizierungen letztlich als die gleiche Art von Illusion wie die Personifizierung der fünf Zusammenhäufungen als »Selbst«.
+
+**HANS:** Nun kommen mir ein paar »Wenn und Aber« hoch und trüben den Blick auf das, was da vorhin bei mir eingeschlagen hat. Ich frage nicht aus Opposition, sondern damit du mir diese Trübung zu beseitigen hilfst: Der Buddha fragt ja Saccako bei allen fünf Zusammenhäufungen, ob sie beständig oder unbeständig seien. Wenn der sagt: beständig, dann fragt er, ob Unbeständiges leidig oder wohl sei. Dann antwortet Saccako jedesmal so selbstverständlich: »leidig«, als wäre
+
+***
+<sup>48</sup> Zitiert nach Meschkowski, S. 124, Hervorhebung von mir.
+
+161
+<!-- PAGE_END: 161 -->
