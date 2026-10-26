@@ -1,0 +1,18 @@
+<!-- PAGE_START: 135 -->
+delten als heute, daß sie meist als Ernte erlebten, wonach sie verlangten. Da war es leicht und auch für jeden Menschen einsehbar, daß er gut tat, an diesem zufriedenen Lebensklima nicht durch Streben nach noch mehr etwas zu ändern. Schon zur Zeit des Buddha waren die Menschen anders. Deshalb hat der Erwachte für die in der Häuslichkeit verbliebenen Menschen die Grenzen für das Genießen erst bei seiner Entartung zur Verletzung von Tugenden, zur Fixierung auf Sucht (_abhijjhā_) oder zum Genießen im Jugend-, Lebens- oder Gesundheitsrausch gezogen, die die Erinnerung an das Entrinnen vergessen macht. Von diesem Grundsatz ist die ganze Anleitung des Erwachten durchzogen. Wir werden noch an einen ganzen Block von Reden über die rechte Besitzverwendung kommen.<sup>17</sup> Hat freilich der Erwachte ihrem inneren Haushalt nach sozusagen »Flügelwesen« vor sich – wie bei manchen Mönchen und Nonnen und jener seltenen zweiten Art von häuslich lebenden Mystikern, jener »Stillen im Lande« –, so ließ er sie ohne viel Worte sozusagen ihre Flügel entfalten und springen. Wer aber in der Sinnensucht wohnt, hat noch keine Flügel und muß daher vom »falschen Berg« zu Fuß hinuntergehen. Dabei mag allerdings mancher Mensch aus dem besseren Überblick des Hinuntersteigens manche Möglichkeiten zur Abkürzung finden und manchen mögen dabei gar allmählich Flügel wachsen. Die Anleitung des Erwachten ist da in der geistigen Grundrichtung kompromißlos klar, in der Gangart aber dem inneren Haushalt der einzelnen Heilsucher einfühlsam angepaßt. Das bedeutet für deine Frage nach dem Umgang mit Besitz, Hans, daß das Verlassen des gefährlichen Wegs – das »Steigen über die Sinne« – für den normalen, an das Leben in der Häuslichkeit gewohnten Menschen (auch den Heilsgänger) nicht damit anfangen kann, daß er den Besitz wegwirft, ehe er reichlich inneres Wohl hat, sondern damit, daß er sich erst von Hemmungslosigkeit und Rauschhaftigkeit, Habsucht, Geiz, Rücksichtslosigkeit und Nächstenblindheit freimacht, in lichten Momenten im Geist das Elend der Sinnensucht und ihre Gefahren immer wieder durchschaut und nicht aus den Augen verliert. So hat der Erwachte dem König Pasenadi von Kosalo, der berichtete, wie er als Gerichtsherr immer wieder erleben müsse, daß Menschen um des Besitzes willen Übles tun, auf die Gefahren der Sinnensucht hingewiesen:
+
+> In weltlichen Besitz vernarrt, besessen von der Sinnengier,  
+> beachten sie die Grenzen nicht, wie in die Reuse schwimmt der Fisch.  
+> Da wird das nächste Leben hart, und hart wird ihres Wirkens Frucht. (_S 3,7_)
+
+Auch in der Rede, die wir gerade besprechen, sind die Gefahren des Hängens an Besitz behandelt, aber nicht in Form einer Warnung, sondern in positiver Form: So bezeichnet der Erwachte die vier Eigenschaften, die bereits in diesem Leben Segen und Wohl bringen, als Eigenschaften eines geordneten Menschen. Wer will, kann darin einen feinen Hinweis darauf sehen, daß es Eigenschaften sind, die nicht nur zu äußerem Wohl, sondern auch zu »Segen« führen.
+
+**HANS:** So ist es ja auch: Wer sich im Beruf an Strebsamkeit gewöhnt, dem steht sie auch zur Verfügung für das Streben nach Wahrheit und Herzensläuterung. Das Wissen, daß man Erworbenes sorgsam bewahren muß, und die Fähigkeit, danach zu handeln, hilft auch beim Bewahren erworbenen Wissens und erworbener guter Eigenschaften.
+
+**RUTH:** Und die Freundschaft mit tugendreifen Menschen voll Heilsvertrauen, die weise und zum Loslassen erwachsen sind – das ist ja das Ganze des geistlichen Lebens. Fast scheint mir, auch das Einüben einer ausgeglichenen Lebenshaltung käme unausgesprochen irgendwie dem geistlichen Leben zugute, oder wie ist das?
+
+***
+<sup>17</sup> Siehe unten im 5. Gespräch.
+
+135
+<!-- PAGE_END: 135 -->
