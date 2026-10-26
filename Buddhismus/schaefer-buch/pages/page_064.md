@@ -1,0 +1,19 @@
+<!-- PAGE_START: 064 -->
+nenten: der (seelischen) Hinneigung und Abneigung und der Blendung (des Geistes durch diese Hinneigung und Abneigung)? Dann wären »Geist« und »Seele« – was immer sie sein mögen – viel enger miteinander verbunden, als es die einseitige Überschätzung des Geistes seit der Aufklärung glaubenmachen will?
+
+**FRITZ:** So sehe ich es. »Herz« (Psyche, Seele) heißt im Pāli _citta_, wörtlich: das Zusammengedachte nach dem Gesetz: _Was der Mensch häufig bedenkt und sinnt, dahin geneigt wird das Herz_ (M 19). Am meisten denkt und sinnt der »normale« Mensch das, wohin das Herz sowieso schon neigt, und so hat das Denken – im Guten wie im Schlechten – meist eine Art Zinseszinseffekt. – Lediglich in den prägnanten, knappen Fassungen der vier Heilswahrheiten wird stellvertretend für den ganzen Eisberg aus Hinneigung, Abneigung, Blendung seine sichtbare Spitze, der Durst, genannt. Wo aber näher erklärt wird, da nennt der Buddha den ganzen Eisberg: »Hinneigung, Abneigung, Blendung«, also ein Feld von Spannungen, in welchem gleichsam wie in einer Gewitterwolke ständig blendende Entladungen blitzen. Dies hier nur einmal als eine allererste Vorschau, die jetzt noch kaum verstanden werden kann. Sie soll unsere eingefahrenen westlichen Denkgewohnheiten und Vorurteile ein wenig auflockern, weil ihr nun schon einmal danach gefragt habt. Wir kommen später darauf zurück.
+
+**HANS:** Hinneigung, Abneigung, Blendung: als Triebe treibend und als Blendung Wahn produzierend! Das soll »das Leben« sein? Ich muß noch einmal sagen: Wahnsinn! – In dem wenigen, was ich bisher über den Buddhismus gelesen habe, war zwar ab und zu vom Wahn die Rede. Aber ich merke jetzt, daß mir bisher noch nicht einmal eine Ahnung von seiner Bedeutung aufgegangen war. Das sind ja schöne Aussichten: Früher habe ich Trost in dem Gedanken gefunden, wenn ich mich hier redlich bemühe, werde ich jenseits des Todes irgendwie in einer geistigen, »göttlichen« Wesenheit Geborgenheit finden. Und bis dahin habe ich im tätigen Umgang mit guten, klugen Menschen und in Natur und Kunst einen Abglanz dieses Göttlichen zu spüren gesucht. Soll denn auch das alles Wahn sein?
+
+**FRITZ:** Es braucht wahrlich niemand, der in einem solchen Glauben Trost gefunden hat, besorgt zu sein, solange er noch Verlangen nach guten, hochziehenden Aktivitäten hat, könne er ins Leere fallen. Das ist daseinsgesetzlich unmöglich. Wo noch Wille ist, da ist zwar noch nicht der endgültige Friede. Aber wo überwiegend Wille nach Hohem, Reinem ist und das Herz entsprechend diesem Willen gereinigt und geläutert wird, da kommt das Erleben göttlicher Wesenheit zustande, wie Meister Ekkehart gesagt hat: »In dem Maße, wie du die Welt aus dir heraustust, muß Gott in dich hineinkommen, ob er wolle oder nicht.« Und: »Es ist recht ein gleicher Kauf und Wiederkauf: Soviel du aller Dinge ausgehst, so viel, weder weniger noch mehr, geht Gott hinein mit allem dem Seinigen, genau in dem Maß, wie du in allen Dingen des deinen ausgehst.« Und Angelus Silesius sagt:
+
+> »Je mehr du dich aus dir  
+> kannst austun und entgießen,  
+> je mehr muß Gott in dich  
+> mit seiner Gottheit fließen.«  
+> (Cherub, 1,138)
+
+Der Heilsweg des Buddha führt durch alle Höhen zur Freiheit und kann dabei Bereiche inneren Wohls durchmessen, von denen nur die tiefsten Mystiker künden. Wenn das nach dem Unvergänglichen dürstende Herz des von einem Erwachten Angeleiteten auch vom göttlichen Erleben gesättigt ist, weil auch dieses Erleben unbeständig ist, und sich nach nichts mehr sehnt als nach dem bedingungslosen ewigen Frieden, dann mündet es auch in den ewigen Frieden ein, in
+
+64
+<!-- PAGE_END: 064 -->

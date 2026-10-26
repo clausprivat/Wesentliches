@@ -1,0 +1,20 @@
+<!-- PAGE_START: 068 -->
+wirklich hat, darin verweilen – aber das ist ein leidiger Zustand. Doch so ist das nicht anzusehen: Die befleckenden Eigenschaften werden schwinden, die läuternden Eigenschaften werden wachsen, daß man sich die Vollendung des Klarwissens in ihrer Fülle noch in diesem Leben selbst offenbarmachen und, wenn man sie verwirklicht hat, darin verweilen kann – damit aber wird geistige Freude aufkommen, wird innerer Jubel aufkommen, werden Stille und Wahrheitsgegenwart und Klarbewußtsein aufgehen, und es wird ein bleibendes Wohl sein.« So ist die Heilsanleitung des Buddha ein Weg von Wohl zu immer höherem Wohl. Mag auch die eine oder andere Wegstrecke mühsam sein – unser »normales« Leben in Familie und Beruf bis hin zum »Freizeitstreß« ist viel mühsamer, führt aber nicht, wie der Heilsweg, durch immer feineres Wohl zum höchsten Wohl, sondern durch Höllen von Leiden. Der Buddha hat Nirvana ausdrücklich das höchste Wohl genannt. Lassen wir das einstweilen als Vorbemerkung vor unseren kommenden Gesprächen stehen.
+
+**HANS:** Sag, Fritz, warum sagst du statt »Nirvana« oft auch »Branderlöschung«?
+
+**FRITZ:** Nirvana ist der im Westen geläufigere Sanskrit-Ausdruck. Im Pāli heißt es _nibbāna_. Nirvāna klingt für westliche Ohren fast wie unser Wort »das Nichts«. Das empfinden die Menschen dann so, als würde ihnen, so wie sie jetzt sind, mit allen ihren derzeitigen Neigungen, den fragwürdigen wie den guten, sofort auf einen Schlag alles weggenommen, was ihnen lieb und wert ist. Das ist eine ganz falsche Vorstellung: In Wirklichkeit kann sich nur das – und all das – auflösen, was sie aufgrund einer bis dahin durch immer mehr Wohl vollzogenen Läuterung dann gar nicht mehr als Wohl, sondern als Bedrängnis empfinden. Darüber haben wir ja schon gesprochen.<sup>7</sup> Ganze philosophische Schulen wie die Existentialisten haben sich dem vermeintlichen Ende im Nichts in typisch westlichem »tragischem Heroismus« zu stellen versucht. Und was ist dabei herausgekommen: am Ende mehr oder weniger extreme Aktionen und ein aschgraues Lebensgefühl – bestimmt nicht der süße Friede. – Die ganz andere Bedeutung des Pāliworts _nibbāna_ haben wir ja schon angesprochen: »nicht mehr Wehen«, »Erlöschen« – Erlöschen des Daseinsbrandes, von dem der Erwachte in der »Feuerpredigt« (S 35,28) gesagt hat: »Alles brennt in den Feuern von Hinneigung, Abneigung und Blendung.« Um das im deutschen Wort annähernd so wie im Pāli herüberzubringen, wurde die Übersetzung »Branderlöschung« (oder Löschung des Daseinsbrandes) gewählt.
+
+**RUTH:** Früher habe auch ich in glücklichen Lebensaugenblicken gern in Rilkes Ruf eingestimmt: »Hiersein ist herrlich!« Aber wenn ich mir vor Augen halte, daß die als herrlich empfundenen Seiten des Hierseins nur mehr oder weniger lange Unterbrechungen zwischen Perioden sind, in denen einen das Elend anspringt, und dann an ewigen Frieden und absolute Freiheit denke, dann legt sich dieser Überschwang. Dann kommt manchmal für Augenblicke mein inneres Gewühl etwas zur Ruhe, obwohl ich noch nichts von diesem Höchsten verstanden habe, und stattdessen zieht eine ruhige Klarheit ein. Aber wie selten ist man in dieser stillen Verfassung! Wie kann man sie nur wiedergewinnen?
+
+**FRITZ:** Dazu braucht es gar nichts Besonderes: Wenn man z.B. die einfachen offensichtlichen Lebenstatsachen still und klar so ansieht, wie sie wirklich sind, und sich ihnen stellt, dann kann diese helle, heilende Nüchternheit zu wachsen beginnen. Das hat der Erwachte für alle seine Nachfolger, auch die in der Welt lebenden, dargestellt in der Rede
+
+### A V,57 – FÜNF BETRACHTUNGEN FÜR JEDEN MENSCHEN:
+
+> »Fünf Lebenstatsachen, ihr Mönche, sollte sich jeder Mensch öfter vor Augen halten, ob Mann oder Frau, ob in der Welt Lebende oder Hauslose. Welche fünf? Dem Altern bin ich unterworfen, kann dem Altern
+
+***
+<sup>7</sup> Siehe oben, S. 30 und 40.
+
+68
+<!-- PAGE_END: 068 -->
