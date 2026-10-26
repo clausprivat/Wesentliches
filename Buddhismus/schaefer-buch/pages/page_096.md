@@ -1,0 +1,19 @@
+<!-- PAGE_START: 096 -->
+> _schon zu Lebzeiten von vernünftigen Menschen gepriesen wird und nach dem Absterben dieses Körpers, jenseits des Todes auf guter Bahn, in himmlischer Welt wiedererscheint. Da es sich so verhält, so ist von ihm diese dogmenfreie Wahrheit zuende gedacht, richtig befolgt worden, auf beide Fälle stellt er sich ein; die unheilvolle Möglichkeit schließt er aus._«
+
+**HANS:** Das ist allerdings beeindruckend und für einen Religionsgründer in einer so alten Zeit überraschend: Der Buddha behandelt beide Meinungen im Prinzip als bloße Hypothesen und rät nur abzuwägen, mit welcher man praktisch auf die Dauer am besten fährt. Und da ist tatsächlich zwingend: Das geringste Risiko geht ein, wer in der Praxis ernsthaft auch mit der Möglichkeit von Jenseits und Karma rechnet.
+
+**RUTH:** Fritz, du hast einmal gesagt, das Risiko einer solchen »Nachfolge auf Probe« ist nur, sich eine Zeitlang mehr als bisher in Tugend, Herzenseinigung und Klarblick geübt zu haben. Das gewinnt ein ganz anderes Gewicht, wenn man sieht: Dazu muß man nicht Mönch oder Nonne werden, sondern kann in der gewohnten Lebensform, in Familie und Beruf, bleiben, wenn man nicht den Zuschnitt, die Kraft, die Gelegenheit oder die richtige Gemeinschaft zur Askese hat. Ich muß gestehen: Anfangs hatte ich noch gedacht: »Na, so ganz ausgewogen scheint die Gegenüberstellung der beiden Ansichten über Jenseits und Karma in M 60 doch nicht: Von möglichen Nachteilen der Jenseits-Ansicht – etwa daß man über dem Hinblick auf das Jenseits die diesseitigen Aufgaben vernachlässigen könnte – ist keine Rede, und auch nicht davon, daß es auch Jenseitsgläubige gibt, die sich wegen ihres Glaubens aufblasen.« Aber beim weiteren Zuhören haben sich auch diese beiden letzten Bedenken von selber aufgelöst.
+
+**HANS:** Wie denn?
+
+**RUTH:** Beim zuletzt Vorgelesenen ist mir klargeworden, was ich nie für möglich gehalten hätte: Unabhängig von ihrem Wahrheitsgehalt sind die beiden gegensätzlichen Ansichten »es gibt ein Jenseits« und »es gibt keines« tatsächlich nicht gleichwertig. Bis dahin hatte ich immer gemeint, zwei gegenteilige Ansichten seien bis zum Beweis der Richtigkeit oder Unrichtigkeit als gleichberechtigt zu behandeln. Aber da habe ich zwei Dinge verwechselt: auf der einen Seite die berechtigte Forderung, Menschen gleich zu behandeln und wegen ihrer Ansichten nicht zu benachteiligen, und auf der anderen Seite die Frage, wie ich bei mir selber am besten mit widersprechenden Ansichten umgehe. Hier wird ja gezeigt, wie jeder vernünftige Mensch (ohne schon aus Erfahrung zu wissen, welche der beiden Ansichten über das Jenseits richtig oder falsch ist) exakt sagen kann, mit welcher er auf jeden Fall besser fährt in diesem und in etwaigen späteren Leben.
+
+**HANS:** Und was ist mit deinem Einwand, auch »Jenseitsgläubige« würden sich wegen ihrer Ansicht aufblasen?
+
+**RUTH:** Dazu habe ich mir überlegt: Die Einstellung: »Was ich nicht glaube, gibt es nicht« ist schon ein Sich-Aufblasen, weil sie allen anderen die Möglichkeit abspricht, mehr erfahren zu haben als ich. Dagegen ist gerade das beste Mittel gegen Überheblichkeit das Einbeziehen der Möglichkeit von Saat und Ernte und Jenseits. Denn wenn es das gibt, dann sind ja die Fehler des anderen, wegen deren ich auf ihn herabsehe, meine eigenen Fehler! Wie da ohne Sich-Einlassen auf einen Streit über Richtigkeit oder Unrichtigkeit aus bloßen Hypothesen durch exakte Risikoabwägung Handlungsanleitungen gewonnen werden, das ist schon einmalig.
+
+**HANS:** Mich beeindruckt das auch. Und doch: Ganz wohl ist mir nicht. Bei dem Königspaar und den Leuten von Veludvara hat es mir so gut getan, daß ich im Gemüt eine richtige Abwehr dagegen zu empfinden begann, Mitwesen wehzutun: »_Verletz drum keinen, du liebst auch dein Selbst._« Die geradezu versicherungsmathematische Risikoberechnung in M 60 kommt mir dagegen reich-
+
+96
+<!-- PAGE_END: 096 -->

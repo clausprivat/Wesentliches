@@ -1,0 +1,20 @@
+<!-- PAGE_START: 095 -->
+tugendlichen Wandel nicht durch, wenn er im jetzigen Leben Nachteile bringt, vor allem Nachteile für andere, denen er sich verpflichtet fühlt; denn auch das menschliche Bedürfnis, für vermeintliche höhere Interessen oder Ideologien Opfer zu bringen, kann groteske Blüten treiben. Früher oder später schlittern solche unglücklichen, tragischen Gestalten in Untugenden hinein, die sie wie in unseren Beispielen schon im jetzigen Leben ins Elend stürzen. Wenn es aber ein Jenseits und Saat und Ernte gibt, bringen sie schlimme Leiden über dieses Leben hinaus. Krumme Sachen begehen Menschen oft auch aus purer Angst, weil sie meinen, sie müßten damit etwas abwenden, was ihnen – auf dieses eine Leben bezogen – schlimmer vorkommt als die Vergewaltigung ihres Gewissens.
+
+**RUTH:** Dem habe ich nichts mehr entgegenzusetzen. Die armen Menschen – Opfer und Zeugen und Täter! – Möchten sie doch bald Frieden finden! Man macht sich all das viel zu wenig bewußt.
+
+**FRITZ:** Ja, Ruth. Auch das sind lohnende Meditationsthemen!
+
+**HANS:** Das ist folgerichtig. Aber was ist denn von denen zu erwarten, die mit Jenseits und Karma ernsthaft und praktisch rechnen?
+
+**FRITZ:** Darüber sagt der Erwachte:
+
+> »_Wenn Asketen und brahmisch Lebende sagen und meinen: Geben, Opfern und Spenden hat einen Sinn; es gibt eine Saat und Ernte guter und schlechter Werke; diese und jene Welt gibt es; genausogut wie Vater und Mutter gibt es auch ein unmittelbares Erscheinen von Wesen; es gibt in der Welt Asketen und Brahmanen, die richtig vorgegangen, richtig vorgedrungen sind, so daß sie aus eigener weltüberlegener Schau diese Welt und jene Welt sich selber offenbargemacht haben und sie erklären können – dann ist von ihnen zu erwarten, daß sie von einem untauglichen Wandel in Taten, mit der Sprache und im Geist von diesen drei heillosen Eigenschaften abkommen und einen tauglichen Wandel in Taten, mit der Sprache und im Geist führen, diese drei tauglichen Eigenschaften annehmen und danach leben werden. Und warum? Diese lieben Asketen und brahmisch Lebenden sehen in heillosen Eigenschaften das Elende, Herabziehende, Beschmutzende und in heilstauglichen Eigenschaften das aus dem Elend Herausführende, einen Vorteil, eine heilstaugliche Wirkung: Wenn es ein Jenseits gibt, ist die Ansicht dessen, der die Ansicht hat: es gibt ein Jenseits, die rechte Ansicht, ist die Gemütshaltung dessen, der sich darauf einstellt, daß es ein Jenseits gibt, die rechte Gemütseinstellung, dann ist die Aussage dessen, der sagt: es gibt ein Jenseits, eine rechte Rede, dann kämpft einer, der sagt: es gibt ein Jenseits, nicht gegen Genesene an, die eine jenseitige Welt sehen. Wenn es ein Jenseits gibt, und einer lehrt: 'es gibt ein Jenseits', dann ist das eine wahre Lehre, und nach einer solchen wahren Lehre bläst man sich nicht auf und schätzt nicht andere gering. So wird das, was ein solcher früher an üblem Verhalten an sich hatte, abgetan, und eine gute Verhaltensweise erwächst ihm. Das ist rechte Ansicht, rechte Gemütseinstellung, rechte Rede, die Hinwendung zu den rechten Menschen, wahres Belehren, frei von Überheblichkeit und Mißachtung der anderen: So entwickeln sich diese verschiedenen tauglichen Eigenschaften, bedingt durch rechte Ansicht._
+> 
+> _Da sagt sich ein vernünftiger Mensch: Wenn es wirklich eine jenseitige Welt gibt, dann erscheint dieser liebe Mensch nach dem Absterben dieses Körpers jenseits des Todes auf guter Bahn wieder, in himmlischer Welt. Mag es aber meinetwegen auch kein Jenseits geben, sollen jene lieben Asketen und brahmisch Lebenden recht haben; aber dieser liebe Asket oder brahmisch Lebende wird ja schon in diesem Leben von vernünftigen Menschen gepriesen: 'Ein tugendhafter Mensch ist das, von rechter Ansicht, mit Wirklichkeitssinn.'_<sup>15</sup> _Wenn es aber doch ein Jenseits gibt, dann hat es dieser liebe Mann auf beiden Seiten gut getroffen: weil er_
+
+***
+<sup>15</sup> _atthika-vāda_, wörtlich: einer, der anerkennt und sagt: es gibt....
+
+95
+<!-- PAGE_END: 095 -->
