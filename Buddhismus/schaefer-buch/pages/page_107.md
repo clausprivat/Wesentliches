@@ -1,0 +1,19 @@
+<!-- PAGE_START: 107 -->
+> _'Es ist erlöst. Zersprengt ist die Wiedergeburt, vollendet das brahmische Leben, die Aufgabe gelöst. Nichts mehr über dies hinaus', versteht er nun. Der wird ein Mensch genannt, der kein Selbstquäler ist, nicht eifrig bemüht, sich selber Plage und Qual zu bereiten, und kein Quäler der Mitwesen, nicht eifrig bemüht, anderen Plage und Qual zu bereiten, sondern ohne Selbstqual, ohne Nächstenqual schon in diesem Leben gestillt ist, die Glut gelöscht hat, kühl geworden, durch und durch Wohl empfindend, weil er durch sich selber zum Höchsten erwachsen ist._«
+
+Auf diese Rede sprachen die brahmanischen Hausväter von Sālā: »_Wunderbar, Herr Gotamo, wunderbar, Herr Gotamo: Wie wenn einer Umgestürztes wieder aufrichtete, Verdecktes enthüllte, einem Verirrten den Weg zeigte, ein Licht in die Finsternis hielte: Wer Augen hat, kann die Formen sehen, so ist vom Herrn Gotamo die Lehre in vielfacher Weise gezeigt worden. Beim Erhabenen nehmen wir Zuflucht, Herr Gotamo, bei der Lehre und beim Mönchsorden. Als seine Schüler möge uns der Herr Gotamo betrachten, die von heute an danach zu leben begonnen haben._«
+
+**HANS:** Da hat der Buddha nun einfachen Hausväter den ganzen Heilsweg seiner Mönche bis zum letzten Ziel gezeigt, und sie waren davon so erhoben, daß sie zu ihm Zuflucht genommen haben! Das berührt mich mehr als alles, was ich je gehört habe. Aber ich habe nicht viel davon verstanden. Haben das denn diese Hausväter wirklich fassen können?
+
+**FRITZ:** Kaum. Aber mit diesem Gesamtüberblick senkte der Erwachte in die Zuhörer wieder einen jener »Keime« der Anleitung, von denen wir schon gesprochen haben: Was sie jetzt noch nicht ganz verstehen, wird ihnen später aufgehen, wenn sie durch Tugend und Herzensläuterung ihre Verständniskraft weiter gestärkt haben, bestärkt durch den Blick auf die Möglichkeit des Weiterlebens jenseits des Todes nach dem Gesetz von Saat und Ernte – und manche von ihnen mit einem fernen Ahnen, daß man der ganzen Existenz mit ihren Leiden ein Ende in Frieden machen kann – in ewigem Frieden. Schon jetzt lassen diese Fernblicke eine Ahnung von der Wachheit des Vollendeten aufgehen. Der Erwachte hat diese Hausväter im ersten Hauptteil der Rede gelehrt, ernsthaft auch mit Daseins-Möglichkeiten zu rechnen, über die sie bisher weder Wissen noch Glauben noch Erfahrungen hatten. Im zweiten Hauptteil der Rede zeigte er ihnen mit dem Überblick über den Tathāgata-Gang seiner Mönche, daß es über allem Meinungsstreit der vielen anderen Asketen einen widerspruchsfreien Heilsweg gibt, der »Hand und Fuß« hat und auf dem man die höchsten Daseinsmöglichkeiten erproben und – von Wohl zu Wohl vorschreitend – den ewigen Frieden erreichen kann – in der Askese sogar schon in diesem jetzigen Leben. Aber, wie gesagt, in anderen Reden zeigt der Erwachte, daß man auch in der Häuslichkeit die endgültige Sicherheit gewinnen kann, nach einer begrenzten Zahl von Wiedergeburten, nie unterhalb des Menschentums, dieses letzte Ziel zu erreichen.
+
+**HANS:** Du hast ja gesagt, Fritz, die bloße Hypothesenabwägung und Folgenabschätzung ist für die Hausväter, die nicht schon in diesem Leben das letzte Ziel erreichen können, noch nicht das letzte Wort. Sie soll nur einen klaren Weg für die Zwischenzeit zeigen, in der sie noch keine eigenen Erfahrungen haben. Was muß man denn tun, um von bloßer Hypothesenbildung und Risikoabwägung zur Wahrheitserkenntnis zu kommen?
+
+**FRITZ:** Das erklärt der Erwachte umfassend in der Rede
+
+### M 95 – CĀṄKī.
+
+Sie ist in _WW_, 1981, S. 426 ff. so gründlich besprochen, daß ich mich hier auf den Hauptteil beschränken kann, den richtigen Umgang mit der Wahrheit: – Der Erwachte mit vielen Mönchen hielt sich bei einem Brahmanendorf im Land Kosalo auf. Dort tagte ein Kongreß von an die fünfhundert Brahmanen. Die Einwohner hatten von dem wunderbaren Ruf des Buddha gehört und
+
+107
+<!-- PAGE_END: 107 -->
