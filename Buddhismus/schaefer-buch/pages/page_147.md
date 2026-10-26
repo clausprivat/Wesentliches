@@ -1,0 +1,20 @@
+<!-- PAGE_START: 147 -->
+Springflut, als verbrühendes kochendes Wasser oder als kühlender Umschlag, als Trinkwasser oder Strahl eines Polizeiwasserwerfers erlebt wird.
+
+Je nachdem, ob es um die Beschreibung von Erlebnissen und Übungen geht oder um ihre Durchschauung, müssen wir uns bald auf der einen, bald auf der anderen Sprachebene bewegen. Übungen werden durchweg in der Erlebnissprache beschrieben, die fünf Zusammenhäufungen mit ihrem Bedingungszusammenhang dagegen in der Durchschauungssprache. Das kann gar nicht anders sein. Denn in unserem Wahn erleben wir ja das Dasein nicht so, wie es wirklich ist: Wir erleben »Ärger über den Chef«, aber nicht die Analyse dieser Szene durch ihre Zurückführung auf die fünf Zusammenhäufungen. Die können wir in der Regel erst hinterher im stillen Kämmerlein im Geist vornehmen, wenn wir uns fragen: »Was war das eigentlich in Wirklichkeit, was mich so aufgeregt hat?« Aber wenn ich die Komponenten der Analyse in meinem Erleben wiederfinden will, dann muß ich erst das Erleben in der Erlebnissprache beschreiben.
+
+**RUTH:** Ach so: »Herz« ist ja ein Wort der Erlebnissprache! Dann war mein Versuch schon im Ansatz falsch, »Herz« in den Begriffen der Durchschauungssprache zu suchen! Dann können wir in den fünf Zusammenhäufungen das Herz gar nicht finden! Nur wenn wir es analysieren wollen wie eine Zwiebel, dann finden wir keine anderen Schalen als die fünf Zusammenhäufungen.
+
+**HANS:** Ist »Herz« nur eine Übersetzung der fünf Zusammenhäufungen aus der Durchschauungssprache in die Erlebnissprache?
+
+**FRITZ:** Nein, Hans: Die fünf Zusammenhäufungen sind _alles_: Auf sie lassen sich ausnahmslos alle Phänomene der Existenz analysierend zurückführen. »Herz« dagegen ist zwar einer der umfassendsten Begriffe in der Lehre. Aber alles umfaßt er nicht.
+
+**HANS:** Was umfaßt er denn?
+
+**FRITZ:** Die Summe restlos aller Neigungen, Triebe, Anlagen, Kräfte und Fähigkeiten im Guten wie im Üblen, die so erlebt werden, als wenn sie in körperlichen Sinnen und im Geist wohnten. José Ortega y Gasset hat es einmal so zusammengefaßt:
+> »Bevor wir erblicken, was uns umgibt, sind wir bereits ein anständiges Bündel von Gelüsten, Trieben und Illusionen. Wir kommen zur Welt, von vornherein begabt mit einem System von Vorlieben und Abneigungen, die mit denen unseres Nächsten mehr oder weniger sich decken, und die jeder in sich trägt, gerüstet und schußfertig, um in jeder Sache unser Pro und Contra wie eine Batterie von Sympathien und Antipathien loszufeuern. Das Herz, diese rastlose Zuneigungs- und Abneigungsmaschine, ist der Grundpfeiler unserer Persönlichkeit.«
+
+Alles unmittelbare Erleben – nicht nur das Gefühl, sondern alle Wahrnehmung – ist nicht das Herz, aber ganz herznah. Denn die Wahrnehmung kommt nicht »von außen«, wie die meisten Menschen meinen und empfinden – auch nicht, wenn sie die Bilder einer scheinbar »materiellen« Welt entwirft –, sondern die Wahrnehmung ist Aktivität, Wirksamkeit des Herzens (_citta-saṅkhāra_). Um diese für den Westen unerhörte Tatsache zu betonen, habe ich selber manchmal in Gesprächen absichtlich überspitzt gesagt: »Die Welt ist nicht Materie, sondern Herz« – so wie man in einem leicht gebauten Haus, wenn morgens die Lampe schwankt, weil der Obermieter Meyer seine Morgengymnastik macht, sagen kann: »Das ist Herr Meyer«, obwohl Herr Meyer keine schwankende Lampe ist. So ist – genau genommen – die Wahrnehmung nicht das Herz, sondern eine seiner beiden Aktivitäten. Deshalb ist auch die »Welt« (die Weltwahrnehmung) nicht »Herz«, sondern eine Aktivität des Herzens, ein psychischer Vorgang. Das Herz ist auch nichts »Primäres«: Im Pali heißt »Herz« _citta_, und das kommt von _cinteti_ = denken und heißt wörtlich »das Zusammengedachte«. Aber gedacht werden kann und muß beim nicht vom Wahn Geheilten nur, wo das
+
+147
+<!-- PAGE_END: 147 -->
