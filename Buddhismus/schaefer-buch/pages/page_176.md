@@ -1,0 +1,18 @@
+<!-- PAGE_START: 176 -->
+still ist und gerade darum der Geist klar sieht, dann spielt es kaum mehr eine Rolle, wie flink und durchentwickelt der Geist vorher im Umgang mit der Vielfaltwahrnehmung war, ehe er durch Beruhigung des Herzens unmittelbar klarsehend wurde.<sup>6</sup>
+
+**HANS:** Heißt das: Wenn das Herz richtig ausgebildet und die Sinnensucht aus dem Körper herausgezogen ist – was der Buddha Ausbildung des Körpers nennt –, dann kommt bei einem Menschen, der die Wahrheit vernommen hat, der Geist nach und nach von selber auf den rechten Weg?
+
+**FRITZ:** Ja. So kann man sagen. Ein scharfer, schneller Intellekt kann ein hilfreiches Werkzeug sein. Er ist aber nicht so wichtig wie die Ausbildung des Herzens und des Körpers. Denn die Ausbildung von Herz und Körper führt ganz von selber zwangsläufig zum »hellen, blitzschnellen Klarwissen«, nicht umgekehrt.
+
+**HANS:** Über die Erklärung des Buddha, was Ausbildung des Körpers ist, habe ich mich erst gewundert: Klar war mir zwar, daß Kasteiungen keine »Ausbildung des Körpers« sind. Aber ich hätte eher erwartet, daß Ausbildung des Körpers etwas zu tun hat mit »Körperarbeit«, von der man heute in der Psychologie viel spricht. Nicht nur im Sinn von Muskel- und Kreislauftraining, sondern man sieht die körperlichen Vorgänge und die Körpersprache als Ausdruck der Psyche an. Körperliche Verspannungen erkennt man als Anzeichen seelischer Verspannungen. Die versucht man auch von der körperlichen Seite her anzugehen. Das haben ja schon die alten Inder in manchen Formen des Yoga getan. Als der Buddha sagte, daß Saccako gar nicht weiß, was Ausbildung des Körpers ist, da habe ich deshalb gedacht, nun käme etwas über Yoga. Inzwischen dämmert mir zwar, daß das Herausziehen der »Sinnensucht-Ladung« aus dem Körper letztlich die einzig lohnende Ausbildung des Körpers ist. Aber dann sagt der Buddha, daß bei Ausbildung des Körpers ein körperliches Wohlgefühl nicht das Herz überwältigt: Dann wäre das doch eher Ausbildung des Herzens als des Körpers?
+
+**FRITZ:** Ausbildung des Körpers durch seine allmähliche Befreiung aus der Sklaverei der Sinnensucht und Ausbildung des Herzens kann man zwar unterscheiden, aber nicht trennen: Die (erlebbaren) Sinnesdränge, die den (erlebbaren) Körper wie eine elektrische Ladung durchziehen, sind Dränge des »Herzens«, und was der Geist als Körper deutet, ist Erleben, Wahrnehmung, also Aktivität des Herzens. Davon weiß man im Westen nichts. Deshalb hat die Art von Körperausbildung, die wir hier im Westen kennen, nichts zu tun mit der Ausbildung des Körpers, von welcher der Erwachte mit Saccako spricht. Die hat nur ein einziges Ziel: für den Heilsweg tauglich zu machen. Bloße Behebung von Verspannungen hieße nur an den Symptomen kurieren. Die besten unter den Lehrern, die heute den Menschen durch Yoga oder andere geeignete Körperübungen helfen wollen, wissen das sehr wohl und lehren körperliche Übungen nur in Verbindung mit geistiger Nahrung, die auf das Herz einwirkt. Die einzige Ausbildung des Körpers, die für den achtfältigen Heilsweg auf die Dauer unumgänglich ist, das ist seine Befreiung von der Ladung mit Sinnensuchtspannung. Was es heißt, den Körper auf diese Weise zur Heilstauglichkeit auszubilden, das merken wir ja selber, wenn wir einmal still über die Wahrheit nachsinnen und meditieren wollen oder – uns der aufreibenden Vielfalt müde – einmal einfach einem aufgekommenen leisen inneren Frieden hingeben möchten.
+
+**RUTH:** Das kenne ich: Dann zwickt es hier und spannt es da, durchs Fenster sieht man die Nachbarin die Blumen gießen oder hört Schritte auf der Treppe und denkt, wer das wohl sein
+
+***
+<sup>6</sup> S 46,55; M 99.
+
+176
+<!-- PAGE_END: 176 -->
