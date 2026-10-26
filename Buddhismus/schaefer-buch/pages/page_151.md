@@ -1,0 +1,20 @@
+<!-- PAGE_START: 151 -->
+und stricken als Ersatz für den Verschleiß immer wieder neu. Das Aufhören kommt nicht von selber und nicht von heute auf morgen und auf keinen Fall gegen oder auch nur ohne unseren Willen: Solange die Gewöhnung nicht endgültig aufgehoben ist, immer wieder neue Gedankenfäserchen zu Neigungssträngen zu verspinnen – so lange wird eben immer wieder neu gesponnen und verstrickt. Erst ein von einem Erwachten belehrtes Wesen lernt ganz allmählich, weniger neu zu spinnen und zu stricken, als sich verschleißt. – Dann geht allmählich die Wolle aus. Von einem solchen Heilskämpfer sagt der Buddha in A III,75: »Der schafft kein neues Karma, und das frühere Karma läßt er dann auslaufen,<sup>37</sup> wenn es ihn gerade berührt.« Das ist das offensichtliche Aufhören, zeitlos, zum Selbersehen einladend, das zum Ziel führt, das ein Verständiger bei sich selber erfahren kann.<sup>38</sup> Dann hat alles Spinnen und Stricken ein Ende, und es ist Frieden. Das befreiende Aufhören alles Schmerzlichen, Unbeständigen – darauf läuft die Lehre im Ganzen hinaus. Das ist ganz einfach.
+
+Da können wir alle die verwickelten und feingesponnenen Gedankengebäude über den »Begriff« des Nirvana vergessen. Ein zweiundzwanzigjähriger buddhistischer Kellner, mit dem Karl Eugen Neumann vor 100 Jahren in seinem Hotel in Colombo sprach, kann uns da Hilfestellung geben. Neumann berichtet, jener habe ihm bekannt, »daß... Nichtwiedergeborenwerden höchstes Ziel sei... er hoffe zwar auf den Himmel..., aber Nirvana sei sein höchstes Streben... Ich lächelte und schüttelte ungläubig den Kopf und fragte ihn, ob er nicht wiedergeborenwerden wollte. O nein, sagte er, es ist nur Elend. Es gibt nur ein höchstes Ziel, Nirvana, Aufhören, und das ist... wie das Ausgehen einer Lampe.«<sup>39</sup>
+
+**HANS:** Das muß richtig sein, Fritz. Es leuchtet mir besser ein, als ich es einem anderen erklären könnte. Der Wust meines alten Weltbildes erscheint mir jetzt wie ein Trümmerfeld. Daraus wollen sich allerlei Wenn und Aber melden – aber ich merke jetzt schon: das sind unaufgeräumte Trümmer. Ich komme mir vor, als wäre ich bei meiner Zickzackfahrt durchs Leben auf meiner alten Karre voll erlernter Denkmuster mit der Wahrheit zusammengestoßen. Da steh ich nun mit meinem zerbeutelten Vehikel auf der Lebensbahn und weiß erst einmal nur eines: Darüber muß ich noch viel nachdenken. Geht es dir nicht auch so, Ruth?
+
+**RUTH:** Daß ich noch viel darüber nachdenken muß, ja. Nur habe ich diese Begegnung mit der Wahrheit weniger als »Zusammenstoß« empfunden. Ich habe schon früher manchmal das Gefühl gehabt: Die Existenz ist wie ein Fiebertraum, und ich sehne mich danach, daß das Fieber geheilt wird und daß ich einfach aufhören kann mit dem Träumen, mit dem Wahnsinn – einfach aufhören, damit Frieden ist für immer. All dem kommt das genau entgegen, worauf die Lehre nach dieser Rede im Ganzen hinausläuft. Dadurch spüre ich nicht so sehr Wenn und Aber, sondern eher ein Bedürfnis, Fragen zu stellen. Aber im Wesentlichen geht es mir doch wie dir, Hans: ich spüre: hier haben wir es nicht nur mit edlen und weisen Thesen eines großen Denkers zu tun, sondern mit übermächtiger Wahrheit, gesehen von einem Wachen. Das wurde ja geradezu dramatisch offenbar an der Szene mit dem donnerkeilbewehrten Geist.
+
+**HANS:** Die ist mir auch durch Mark und Bein gegangen. Trotzdem frage ich mich: Muß man sie eigentlich wörtlich nehmen? Ist sie Wirklichkeit oder Legende?
+
+**FRITZ:** Wirklichkeit ist: Saccako erlebte sich in einer Situation, in der sich ihm die Wahrheit blitzartig so enthüllte und sein ganzes Inneres für einen Moment so taghell ausleuchtete, daß er bis ins Mark spürte: »Wenn ich jetzt ausweiche vor dem, was mir zuinnerst klargeworden ist, dann
+
+***
+<sup>37</sup> Wörtlich: »macht er zunichte« (_byantikaroti_).  
+<sup>38</sup> Besprochen unten im 11. Gespräch.  
+<sup>39</sup> KEN, _UniKonstFB_ 9, S. 14.
+
+151
+<!-- PAGE_END: 151 -->
