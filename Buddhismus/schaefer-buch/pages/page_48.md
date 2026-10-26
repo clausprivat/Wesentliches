@@ -1,3 +1,4 @@
+<!-- PAGE_START: 048 -->
 lebende Nachfolger vorgegangen, daß sie reif waren, in der Häuslichkeit einen brahmischen Wandel zu führen, so daß Sinnengenuß gegenüber ihrem inneren Wohl keinen Reiz mehr für sie hatte. Sie vermochten die vom Erwachten – etwa in M 114 – gegebene Grundanleitung, worauf man sich einlassen soll und worauf nicht, ohne Selbstüberschätzung und Überforderung eigenständig zu handhaben. Das besprechen wir später. Ihnen brauchte der Buddha über ihr Vorgehen nicht mehr viel zu sagen. Sie hatten ihre Grenzen und ihre Möglichkeiten in eigener Erfahrung schon gut kennengelernt. Aber so weit waren selbst damals nur wenige. Das waren die »Stillen im Lande«, »Mystiker in der Häuslichkeit«.
 
 **HANS:** Dann wäre _satipaṭṭhāna_ nur etwas für Nichtwiederkehrer?
@@ -15,3 +16,6 @@ Heute sind die vielen Anleitungen des Buddha für die Gangart im Haus vergessen.
 ***
 
 <sup>106</sup> _gahapati_ – (»Hausvater«) bezeichnete in diesem speziellen Zusammenhang einen in der Regel, wenn auch nicht immer, durch vornehme Geburt und Reichtum ausgezeichneten Grundbesitzer und Handelsherrn (Richard Fick, _Die soziale Gliederung im nordöstlichen Indien zu Buddhas Zeit_, 1897 – Unveränderter Nachdruck Graz Akademische Druck- und Verlagsanstalt 1974, S. 164 ff.). Deshalb ist hier ausdrücklich die Herkunft auch aus einer anderen Familie erwähnt: Die Lehre des Erwachten war eben für alle Menschen bestimmt, nicht wie die Lehre der Brahmanen nur für eine Priesterkaste. Neben dieser engeren Bedeutung der Bezeichnung
+
+48
+<!-- PAGE_END: 048 -->

@@ -1,3 +1,4 @@
+<!-- PAGE_START: 045 -->
 _brahmacariya_ auch die Lebensweise, die zu Brahma führt. Das auffallendste äußere Kennzeichen dieser brahmischen Lebensweise war völlige Keuschheit. Deshalb ist die engste Bedeutung von _brahmacariya_ Keuschheit. Beim Buddha gilt sie nur für Mönche und Nonnen als Dauertugend, nicht für häuslich Lebende, außer für den einen Besinnungsfeiertag in der Woche. Achtet einmal bei den künftigen Texten darauf, wie der Buddha den häuslich Lebenden über die Gangart der Mönche und Nonnen berichtet: ohne die Einzelheiten asketischer Übungspraxis, von denen die Reden an Mönche und Nonnen voll sind. Das gilt besonders auch für die Krone der Mönchsübungen: _satipaṭṭhāna_.
 
 **HANS:** Ja, nun, vielleicht ist der Buddha grundsätzlich nicht auf Einzelheiten der Lebenspraxis eingegangen.
@@ -29,3 +30,6 @@ Allgemein läßt sich nur sagen:
 <sup>99</sup> Im einzelnen siehe unten im 8. Gespräch.  
 <sup>100</sup> A III,132m (PTS = A III,129).  
 <sup>101</sup> Umfassende Darstellung des BuSem vgl. WW, 40. Jg. (1994), Hefte 3 ff.
+
+45
+<!-- PAGE_END: 045 -->

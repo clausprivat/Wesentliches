@@ -1,3 +1,4 @@
+<!-- PAGE_START: 046 -->
 Gleichmacherei auf unterstem Niveau. Zur Zeit des Buddha war der Unterschied zwischen häuslicher und hausloser Lebensweise auch den meisten in der Welt Lebenden klar. Da kam einmal der Hausvater Dhammiko mit 500 im Haus lebenden Anhängern zum Erwachten, der inmitten der Mönchsgemeinde saß, und begann ein Zwiegespräch, das die Anleitungsgrundsätze widerspiegelt, wie sie der Erwachte auch jenem Amtmann erklärt hatte. Dhammiko beginnt:
 
 > _»Ich frag dich, Gotamo, den Weisheitsweiten: Was ist zu tun, um richtig nachzufolgen,_  
@@ -25,3 +26,6 @@ Dhammiko geht also davon aus, daß zwar die gesamte _Wahrheitskenntnis im Geist_
 **HANS:** Aber wenn der Buddha häusliche Nachfolger haben wollte, die die Lehre weitergeben können, dann mußten sie doch auch die Asketengangart kennen.
 
 **FRITZ:** Kennen, ja, als Teil der rechten Anschauung über den vor ihnen liegenden Heilsweg, aber nicht in der Übung nachmachen. Zu üben empfiehlt ihnen der Buddha, außer der Tugend, den allwöchentlichen Feiertag zu nutzen, um an diesem einen Tag freudiges Verständnis für die Weite und Freiheit der Askese zu gewinnen, indem sie es in einzelnen Beziehungen den Geheilten gleichtun. Das sollte ihnen helfen, sich bewußt zu bleiben, daß sie mit ihrer treuen häuslichen Nachfolge auf Ziele hinarbeiten, die über ihre gewohnte Wahrnehmung weit hinausreichen, und
+
+46
+<!-- PAGE_END: 046 -->

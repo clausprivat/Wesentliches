@@ -1,3 +1,4 @@
+<!-- PAGE_START: 043 -->
 ## VIII. GRUNDSÄTZE DES BUDDHA, WEN ER ANLEITET
 
 **FRITZ:** Über die Grundsätze des Buddha, wen er anleitet, gibt am besten ein Gespräch Auskunft, das er nach **S 42,7** mit einem Amtmann<sup>95</sup> geführt hat. Der fragt den Buddha:
@@ -14,3 +15,6 @@ Das ist, wie wenn ein Mann drei Wasserkrüge hat, einen ohne Sprünge, der nicht
 
 <sup>95</sup> _gāmaṇi_ = Amtsträger, oft mit Obmann übersetzt. Aus dem Zusammenhang ergibt sich, daß es sich bald um einen Ortsvorsteher, bald um einen Amtsrichter oder um einen sonstigen Träger exekutiver, manchmal auch richterlicher Gewalt handelt. Meist ergeben die Umstände nichts Genaueres. Dann scheint mir der Ausdruck »Amtmann« zu passen; denn im alten Deutschland übte der Amtmann als Vertreter eines weltlichen oder geistlichen Grundherrn Herrschaft über einen Bezirk aus, besorgte Rechnungswesen und Verwaltung und übte oft auch die niedere Gerichtsbarkeit aus.  
 <sup>96</sup> _kalyāṇa_ = vorzüglich, ausgezeichnet, hängt mit _kalla_ = schön, gesund zusammen (vgl. das griechische καλός). Gemeint sind die drei großen Stadien des Heilswegs: Tugend, Herzenseinigung und Weisheit, die oben ab S. 24 genannt sind und später wiederholt besprochen werden.
+
+43
+<!-- PAGE_END: 043 -->

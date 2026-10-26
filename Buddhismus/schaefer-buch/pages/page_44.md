@@ -1,3 +1,4 @@
+<!-- PAGE_START: 044 -->
 men reinen brahmischen Wandel auf. Und warum? – Sie halten sich an mich als Leuchte, Rettung, Schutz, Zuflucht. Dem Wasserkrug ohne Sprünge, der leckt und rinnt, sind meine Anhänger und Anhängerinnen zu vergleichen. Auch sie unterweise ich sinn- und wortgetreu in der Lehre, zeige ihnen den einzig vollständigen, vollkommen reinen brahmischen Wandel auf. Und warum? Sie halten sich an mich als Leuchte, Rettung, Schutz, Zuflucht. Dem Wasserkrug, der Sprünge hat, leckt und rinnt sind die Asketen, brahmisch Lebenden und Pilger anderer Schulen zu vergleichen. Auch sie unterweise ich sinn- und wortgetreu in der Lehre, zeige ihnen den einzig vollständigen, vollkommen reinen brahmischen Wandel auf. Und warum? Wenn sie auch nur einen kleinen Teil verstehen, wird es ihnen lange zum Segen und Wohl gereichen.«
 
 **RUTH:** Hat der Buddha denn nie einen Menschen abgewiesen, der von ihm etwas wissen wollte?
@@ -20,3 +21,6 @@ men reinen brahmischen Wandel auf. Und warum? – Sie halten sich an mich als Le
 
 <sup>97</sup> M 57m, M 73m, M 75m.  
 <sup>98</sup> Vgl. auch PTS S 55,25 Abs. 13.
+
+44
+<!-- PAGE_END: 044 -->

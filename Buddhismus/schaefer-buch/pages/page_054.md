@@ -1,0 +1,21 @@
+<!-- PAGE_START: 054 -->
+dere nicht lieben«, dann würden manche Menschen noch egoistischer, als sie so schon sind. Das ist wirklich etwas anderes als die moderne Psychologie. Daß wir westlichen Menschen immer alles so zuspitzen müssen!
+
+**FRITZ:** Ja: Die Lehre des Erwachten besteht nicht in der Entwicklung von Theorien, »ob es ein Selbst gibt«, sondern in der Anleitung, wie man mit dem Erlebnis-»Selbst« – solange es erlebt wird – richtig umgeht, um vom Leiden freizuwerden. Ist das Leiden aufgehoben, dann ist damit das »Selbst«-Problem buchstäblich in Wohlgefallen aufgelöst. Der Buddha zieht deshalb aus der offensichtlichen Tatsache, daß jeder von allem Erlebbaren sein Selbst am meisten liebt, eine wunderbar lebenspraktische Konsequenz: »Akzeptiere, daß jedes Wesen – auch Du – am meisten sein Selbst liebt (was das auch sei). Akzeptiere dann aber auch, daß es jedem so geht, nicht nur Dir. ... und verletz' drum keinen, er liebt auch sein Selbst.«
+
+**RUTH:** Das ist eine erlösende Konsequenz. Danach kann man leben. Das ist offensichtlich.
+
+**HANS:** Wird denn auch ebenso offensichtlich gesagt, wie man das in die Praxis umsetzt?
+
+**FRITZ:** Ja, in einer etwas längeren Rede mit dem Titel:
+
+### DIE LEUTE VON VEỊU DVĀRA – S 55,7
+
+> _So hab ich's vernommen: Einstmals kam der Erhabene auf der Wanderschaft durch das Land Kosalo mit einer großen Schar von Mönchen durch ein Brahmanendorf namens Veḷudvāra. Nun hörten die brahmanischen Hausleute von Veḷudvāra: »Da ist doch jetzt der Asket, Herr Gotamo, der Sakyerprinz, der aus dem Fürstenhaus der Sakyer in die Hauslosigkeit gezogen ist, mit einer großen Mönchsgemeinde auf der Wanderschaft durch das Kosaler Land in Veḷudvāra angekommen. Diesem erhabenen Herrn Gotamo geht der wunderbare Ruf voraus: Er ist der Erhabene, Geheilte, vollkommen Erwachte, der im Wissen und Wandel Vollendete, zum Heil gekommen, der Kenner der Welt, der unübertreffliche Lenker des anzuleitenden Menschen, der Meister der Himmelswesen und Menschen, erwacht, erhaben. Diese Welt samt ihren Geistern, den weltlichen und den reinen, samt ihren Scharen von Asketen und brahmisch Lebenden, Himmelswesen und Menschen lehrt er so kennen, wie er sie selber in weltüberlegenem Bewußtsein erschaut und erfahren hat. Er verkündet eine Lehre, die nach Inhalt und Aussageweise schon von Anfang an hilft, auf der mittleren Stufe hilft und zum Ende hilft; das vollkommen hilfreiche, lückenlose, vollkommen lautere brahmische Leben zeigt er auf. Glücklich, wem es vergönnt ist, einen solchen Heilskünder zu erleben!« – Da zogen die brahmanischen Hausväter von Veḷudvāra dorthin, wo der Erhabene weilte. Dort angekommen, begrüßten einige den Erhabenen höflich und setzten sich zur Seite; einige wechselten mit dem Erhabenen höfliche, freundliche Worte und setzten sich zur Seite; andere begrüßten ihn mit gefalteten Händen und setzten sich zur Seite, wieder andere stellten sich mit Namen und Stand vor und setzten sich zur Seite, und einige setzten sich still zur Seite. Seitwärts sitzend sprachen jene brahmanischen Hausväter von Veḷudvāra zum Erhabenen: »Herr Gotamo, wir haben den Wunsch, den Willen und das Bestreben, ein häusliches Familienleben zu führen, Sandelholz aus Benares, blumenduftende Körperpflegemittel zu benutzen, uns an Geld und Gut zu erfreuen, und nach dem Absterben des Körpers, jenseits des Todes möchten wir eine glückliche Lebensbahn gehen, in himmlischer Welt wiedererscheinen. Herr Gotamo: zeig uns, die wir diesen Wunsch und Willen und dieses Bestreben haben, eine Lehre, wie wir so leben können.«_
+> 
+> _»Ich will euch eine Wegweisung geben, Hausväter, die euch so, wie ihr selber seid, weiterführt. Merkt auf und achtet gut auf meine Rede.« – »Ja, Herr«, antworteten die brahmanischen Hausväter von Veḷudvāra._
+> 
+> _Der Erhabene sprach: »Welches ist die Lehrdarlegung, die euch weiterführt, so wie ihr selber seid? Da überlegt der Heilsgänger: Mir ist mein Leben lieb, ich will nicht sterben, ich will Wohl und schrecke vor Schmerz zurück. Würde jemand mir das Leben rauben, so wäre mir das nicht lieb und nicht recht. Wenn aber nun ich einem andern, dem sein Leben lieb ist, der nicht sterben will, der Wohl will und zurückschreckt vor Schmerz_
+
+54
+<!-- PAGE_END: 054 -->

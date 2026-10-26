@@ -1,0 +1,20 @@
+<!-- PAGE_START: 060 -->
+selbstverständlich ist, kann der Erwachte seinen Zuhörern versprechen, wer sich das richtig überlege, der werde sich endgültig und vollkommen klar, daß dies die rechte Lebensführung sei: dieses Sich-Leitenlassen von dem inneren Widerstreben gegen die Untugenden als solche – gleich, ob andere sie mir antun oder ich sie anderen antue.
+
+**HANS:** Was sind über die Ethik dicke Bücher geschrieben worden – und hier wird sie für Verstand und Herz so zwingend erklärt – wirklich offensichtlich. Ich kann mir vorstellen, wie begeistert die Leute von Veḷudvāra waren und daß sie noch häufig darüber nachgedacht haben.
+
+**FRITZ:** Und was der Mensch häufig bedenkt und sinnt, dahin geneigt wird das Herz.<sup>4</sup> So ist hier – ohne daß ein Wort darüber erwähnt wurde – auch schon ein erster Keim zur Wandlung des Herzens zur nichtmessenden Liebe gelegt worden: Auch für die anderen nur Wohl wollen oder, wie der Buddha wörtlich sagt: die völlige Abwesenheit von Übelwollen – das ist bereits der Beginn der nichtmessenden, grenzenlosen Liebe (_mettā_).
+
+**RUTH:** Ich versuche ja auch, mich in die Mitwesen einzufühlen und mich an ihre Stelle zu versetzen. Aber manchmal erschrecke ich über das Ergebnis: Dann kommt nämlich dabei heraus, daß ich meine, ich an der Stelle des anderen würde alles anders und natürlich viel besser machen.
+
+**FRITZ:** Da ist eine haarfeine Grenze zu beachten: Wirklich an die Stelle des anderen versetzt habe ich mich noch nicht, wenn ich mir nur vorstelle, ich wäre zwar in der äußeren Situation des anderen, aber mit meinen Anschauungen, meinen Eigenschaften, meinen Gewohnheiten, meinen Erfahrungen und meiner Lebensgeschichte. Wirklich an seine Stelle versetzt habe ich mich erst, wenn ich mir vorstelle, ich wäre in seiner äußeren Situation mit seinen Anschauungen, seinen Eigenschaften, seinen Gewohnheiten, seinen Erfahrungen und seiner Lebensgeschichte. Denn seine Stelle, in die ich mich versetzen will, ist ja nicht nur seine äußere Situation, sondern noch viel mehr auch seine innere. Wenn ich das versuche, ist das Ergebnis oft, daß ich finde, so gut wie der Mitmensch hätte ich in dieser Situation nicht abgeschnitten. Das war jahrelang eine meiner Hauptübungen auch mitten am Tag, nicht nur in stillen Meditationsstunden.
+
+**HANS:** Dafür, wie leicht man sich nur vermeintlich an die Stelle des anderen versetzt, fällt mir ein Beispiel ein: Ein Kettenraucher hat Besuch von einem Nichtraucher und pafft weiter. Dem Gast kommen vom Qualm die Tränen. Er verzieht unbewußt gequält das Gesicht, sagt aber aus Höflichkeit nichts. Da hätte sich der Raucher gewiß nicht wirklich an die Stelle seines Gastes versetzt, wenn er dächte: »Warum stellt er sich so an; mich an seiner Stelle würde das nicht stören.«
+
+**FRITZ:** Aber das ist ein anderer Fall als bei den Leuten von Veḷudvāra: Rauchen stört nur Nichtraucher. Die sieben offensichtlichen Untugenden (Umgebrachtwerden, Bestohlenwerden usw.) tun jedem weh. Um das nachzufühlen, brauche ich mich nicht – wie im Raucherfall – mit allen inneren und äußeren Feinheiten an die Stelle des anderen zu versetzen. Es genügt, daß ich mir einfach vorstelle, mir selber würde angetan, was ich anderen in Taten, Worten oder Gedanken angetan habe oder gerade antun will. Dabei spielt der Mitmensch nur die Rolle eines Spiegels, der mein Wirken auf mich zurückwirft. Die Auflösung der Untugenden tut allen wohl. Von ihr handelt ein Hauptteil der Anleitungen des Buddha für die Praxis der in der Welt lebenden Nachfolger. Wenn die Leute von Veḷudvāra sich an die Empfehlung des Buddha halten und keinen anderen verletzen, weil sie an sich selber spüren, wie weh das tut, dann mindert sich bei ihnen ohne »bitteres Verzichten« auch der Durst zumindest um den Teil, der sich sonst blind über den Schmerz
+
+***
+<sup>4</sup> Z.B. in M 56.
+
+60
+<!-- PAGE_END: 060 -->

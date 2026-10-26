@@ -1,3 +1,4 @@
+<!-- PAGE_START: 042 -->
 gahapati und »gahapatikās«, die auch im Hausleben manchmal jene innere Stimme vernehmen, die Goethe in die Worte gefaßt hat:
 
 > _Ach, ich bin des Treibens müde._
@@ -28,3 +29,6 @@ Diesen Menschenkreis soll das Buch ansprechen. Aber die ideale Übersetzung daf�
 **FRITZ:** Erst habe ich gemeint, darüber könne man hinwegsehen, weil auch heute noch die tiefere Bedeutung (»Verehrer Schopenhauers« oder »Verehrerin Richard Wagners«) lebendig ist. Aber genau dein Bedenken hat mich doch dazu gebracht, mich mit dem Ausdruck _Anhänger_ abzufinden, zumal das Wort _upāsaka_ nichts über den Grad des Verständnisses aussagt. Anhänger des Erwachten kann man aus purer »Anhänglichkeit« und aus tiefer Einsicht sein. Wo aber Menschen bei der Zufluchtnahme bitten, der Buddha möge sie künftig als »upāsaka/upāsika« nehmen, die von heute an danach zu leben begonnen haben, werde ich auch gelegentlich mit _Schüler/Schülerin_ übersetzen, weil es ihnen nach dem immer wiederkehrenden Wortlaut in den Texten weniger nach »Anhänglichkeit« zumute ist, als so, wie wenn man ein Licht in die Finsternis hielte: _Wer Augen hat, kann die Gestalten sehen._
 
 **RUTH:** Fritz, wenn die meisten Anhänger in der Häuslichkeit gelebt haben, warum hat dann der Buddha die meisten Reden an Mönche und Nonnen gehalten?
+
+42
+<!-- PAGE_END: 042 -->
