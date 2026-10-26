@@ -1,0 +1,19 @@
+<!-- PAGE_START: 089 -->
+_gerichtig nutzen konnte, nicht einmal ihr Autor._«<sup>8</sup>
+
+Der Buddha hat schon vor 2.500 Jahren diese Blickweise nicht nur verschwommen, sondern in Vollendung aufgezeigt und ihre folgerichtige Nutzung selber verwirklicht und – wie wir noch sehen werden – gelehrt, nämlich:
+
+* die genaue Diagnose des Wahns,
+* die Therapieanleitung: Durch eigene Transformation zunächst im Geist selber sehen lernen, daß das ganze Dasein (vom »Himmel« durch die »Welt« zur »Hölle«) ein einziger Wahn, ein Delirium aus dem Fieber von Hinneigung, Abneigung und Blendung ist. Der Weg zur Genesung kann daher nicht in der Deutung oder Veränderung der Fiebertraumbilder bestehen, sondern
+* im Aufspüren, Kennenlernen und Bekämpfen der Erreger des Wahnfiebers: Hinneigung, Abneigung, Blendung, wodurch das Fieber allmählich weicht.
+* Das geschieht in einem allmählichen Selbstheilungsprozeß, indem man als noch Wahnkranker, der aber manchmal in den zunehmenden »lichten Momenten« um seinen Wahn weiß, praktisch so lebt und vorgeht, daß man schon lange vor der Heilung die endgültige Sicherheit erlangt, geheilt zu werden.
+
+**HANS:** Da dämmert mir etwas, vor dem ich fast erschrecke: Ich habe mich vorhin über zwei Dinge gewundert: einmal, daß der Buddha bei den Hausvätern von Sālā offen läßt, welche der widerstreitenden Meinungen wahr ist. Zweitens, daß der Buddha um die einfache Frage, ob es Himmelswesen gibt, scheinbar herumredet: er hätte das als im Rahmen des Bedingten gefunden, innerweltlich gebe es Himmelswesen, und dem Hochsinnigen sei klar, daß beides dasselbe sei, wie wenn man sagt: »Es gibt Himmelswesen«. Aber nun scheint mir, der Buddha sieht es so an: Die umfassende Realität ist der Wahn, gröberer oder feinerer – gleich, ob es der Wahn »Ruth, Hans und Fritz hier im Zimmer« ist oder der Wahn »Himmel« oder der Wahn »Hölle«: Alle Aussagen »Das gibt es« sind Aussagen über gröberen oder feineren Wahn, über seine Bedingungen, über deren Aufhebung oder über die Therapieschritte dazu. Deshalb ist auch alles Denken und Sprechen über das, was religiöse Menschen als außerhalb und oberhalb von »Welt« ansehen – wie es auch genannt werden mag –, noch im Rahmen des Bedingten, Wahnhaften. Von keinen Bedingungen mehr abhängig, von Wahn frei ist allein die Wachheit nach dem Erwachen aus dem Existenz-Traum, und über die kann man keine Aussagen mehr machen.
+
+**FRITZ:** Ja, Hans. Damit hast du den tiefsten Kern der Lehre angesprochen. Erschrick nicht, wenn du diese Sicht nicht lange halten kannst und bald wieder die alten Denkgewohnheiten hereinbrechen. Aber mit einem solchen Vorstoß haben wir die besten Bedingungen für unsere weiteren Gespräche und unser weiteres Vorgehen. Das ist wahrlich keine Sache für »Leichtgläubige«, aber auch keine Sache für Menschen, die alles als unmöglich oder vernachlässigbar unwahrscheinlich behandeln, was sie sich nicht vorstellen können. Wir werden das im Lauf unserer weiteren Gespräche immer besser verstehen. Bis dahin laßt uns im Auge behalten, was du gerade gesagt hast: daß aus der Sicht eines Erwachten »Wir drei« und »Himmelswesen« – und »Himmel« und »Höllen«, »Ich« und »Welt« – jegliches »Etwas«, jegliche Wahrnehmung im Grund nur Szenen in einem heilbaren Delirium aus Hinneigung, Abneigung und Blendung sind. Wer sich das klar vor Augen hält, dem fällt es auch viel leichter, Dinge als ernsthafte Möglichkeiten in seine Lebensplanung und Lebensführung einzubeziehen, die sich mit Materie- und Wissenschaftsgläubigkeit nicht erklären lassen. Zwar hat auch der Wahn seine genauen Bedingungen; selbst im Wahn ist nicht
+
+***
+<sup>8</sup> Weizsäcker: _Tragweite_, S. 266 ff.
+
+89
+<!-- PAGE_END: 089 -->

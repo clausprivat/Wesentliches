@@ -1,0 +1,20 @@
+<!-- PAGE_START: 084 -->
+> _wenn es wirklich ein Jenseits gibt, und einer lehrt, es gäbe kein Jenseits, dann ist das eine wahrheitswidrige Lehre, dann ist die Gemütshaltung dessen, der sich darauf einstellt, es gäbe kein Jenseits, eine falsche Gemütseinstellung, dann ist die Behauptung dessen, der sagt, es gäbe kein Jenseits, falsche Rede, dann kämpft einer, der das sagt, gegen Geheilte an, die eine jenseitige Welt sehen. Und nach dieser wahrheitswidrigen Lehre bläst er sich noch auf und schätzt andere gering. So wird das, was ein solcher früher an tauglichem Verhalten besaß, zerstört, und übles Verhalten wird hochgezüchtet. Das ist falsche Ansicht, falsche Gemütseinstellung, falsche Rede, Abkehr von wahren Menschen, wahrheitswidriges Belehren, Überheblichkeit und Mißachtung der anderen. So entwickeln sich diese verschiedenen untauglichen Eigenschaften bedingt durch falsche Ansicht._
+> 
+> _Da sagt sich ein vernünftiger Mensch: Wenn es keine jenseitige Welt gibt, wenn es wirklich so ist, dann ist dieser liebe Mensch noch einmal davongekommen. Wenn es aber eine jenseitige Welt gibt, dann kann dieser liebe Mensch nach dem Absterben des Körpers, jenseits des Todes auf dem Abweg, in unterer Welt, im Verderben, in höllischem Dasein wiedererscheinen. Mag es aber meinetwegen kein Jenseits geben – sollen meinetwegen jene lieben Asketen und brahmisch Lebenden recht haben; aber dieser liebe Asket oder Brahmane wird ja schon in diesem Leben von verständigen Menschen getadelt: Ein untugendhafter Mensch ist das, von falscher Ansicht, ein Nihilist. Wenn es aber doch ein Jenseits gibt, dann hat dieser liebe Mann auf beiden Seiten verspielt, weil er schon zu Lebzeiten von verständigen Menschen getadelt wird und nach dem Absterben des Körpers, jenseits des Todes auf dem Abweg, in unterer Welt, im Verderben, in höllischem Dasein wiedererscheint. Da es sich so verhält, so ist von ihm die dogmenfreie Wahrheit nicht zuende gedacht, nicht befolgt worden, nur auf eine Seite stellt er sich ein; die heilstaugliche Möglichkeit schließt er aus._«
+
+Der Buddha läßt sich also überhaupt nicht auf eine Diskussion darüber ein, welche Asketen »recht haben«. Und schon gar nicht legt er den Hausvätern nahe, sie müßten an ein Jenseits und an Karma glauben. Der Erwachte stellt vielmehr nur ganz sachlich fest:
+
+1. daß sich die Standpunkte der Asketen klar widersprechen;
+2. welche Folgen für die Lebenspraxis zu erwarten sind, wenn sich jemand der Meinung »es gibt nicht...« anschließt und sein Leben danach einrichtet – gleich wer »recht hat«. Dann legt der Erwachte dar,
+3. welche Bilanz ein vernünftiger Mensch aus dieser Folgenabschätzung für sein eigenes Verhalten zieht: wenn es ein Jenseits gibt, Absinken in untere Welt, wenn es keines gibt, Tadel durch Vernünftige schon in diesem Leben.
+
+**HANS:** Aber wird heutzutage nicht eher von der Mehrheit »getadelt«, wer ernsthaft mit Jenseits und Karma rechnet?
+
+**FRITZ:** Der Erwachte stellt nicht auf jedermanns Tadel oder Lob ab. Dafür gilt zu allen Zeiten das Wort Laotses: »_Hört ein Hochsinniger von dem himmlischen Gesetz, so wird er ergriffen. Hört der Mittelmäßige davon, so schwankt und zweifelt er. Hört es der gewöhnliche Mensch, so lacht er darüber._« Der Erwachte stellt allein auf den Tadel der »Verständigen« ab. Das sind nicht die Intellektuellen oder Gelehrten, sondern solche Menschen, wie er sie in M 80<sup>m</sup> einlädt: »_Willkommen sei mir ein verständiger Mensch, offen, ehrlich, von gerader Natur._« Sie sind zu allen Zeiten den Menschen mit einer Sehnsucht zum Guten lieb. Von ihnen möchte man anerkannt werden; denn fast allen Menschen ist Anerkennung wichtiger als Geld und Gut. Abgelehntwerden tut weh, besonders durch die geraden, guten, verständigen Menschen. Das bedeutet auch Verlust weltlich hilfreicher Beziehungen und soziale Isolierung. So hat Tadel zu Lebzeiten mehr Gewicht, als es auf den ersten Blick scheinen mag.<sup>6</sup> Wenn es aber ein Jenseits gibt, hat das Ausschließen dieser Möglichkeit Nachteile, de-
+
+***
+<sup>6</sup> Dazu D 31, besprochen unten im 8. Gespräch.
+
+84
+<!-- PAGE_END: 084 -->
