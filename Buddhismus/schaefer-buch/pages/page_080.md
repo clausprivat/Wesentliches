@@ -1,0 +1,19 @@
+<!-- PAGE_START: 080 -->
+**FRITZ:** Gemeint ist, ob es nicht nur Wesen gibt, die wie Menschen und viele Tiere durch Vermittlung von Eltern in dieses Leben treten, sondern auch Wesen, die nach dem Verlassen dieses Körpers unmittelbar (aus Geist oder aus gestaltfreier Wahrnehmung gebildet) in ihrer nächsten Existenzweise erscheinen.
+
+**HANS:** Daß der Buddha mit Dörflern über so eine entlegene Streitfrage spricht!
+
+**FRITZ:** Entlegen scheint sie nur den heutigen westlichen Menschen, die fast alle glauben, Leben könne es nur in Verbindung mit Materie geben. Noch Goethe hat gesagt: »Das Höchste, das Vorzüglichste am Menschen aber ist gestaltlos.«<sup>2</sup> Da hatten es die Hausväter von Sālā besser: Ein indischer Dörfler zur Zeit des Buddha – auch wenn er nicht darüber reden konnte – hatte ein feineres Gespür für das, was heute erst wieder die Spitzengruppe der Physiker zu entdecken beginnt: daß die Existenz weder objektiv (psychenunabhängig) noch materiell ist, sondern daß man nach den Daseinsgesetzen »innen«, bei der Psyche, statt »außen«, bei der wahrgenommenen Materie, suchen muß. So selbstverständlich, wie für die meisten unserer Zeitgenossen das vage Empfinden ist, mit dem Tod sei alles aus, so selbstverständlich war den alten Indern das starke Empfinden der Durchgängigkeit des Lebens. Deshalb reichten ihre praktischen Lebensplanungen über den Tod hinaus. Wohlgemerkt: auch das war bei den meisten – genau wie heute die westliche Wissenschaftsgläubigkeit – ein Glaube, kein Wissen. Aber sie zogen daraus nicht die heutige verfehlte Konsequenz: »Solange ich es nicht wahrgenommen habe, gibt es so etwas nicht«, sondern sie verfolgten mit Anteilnahme das Ringen der ernsthaften unter den Pilgern, die täglich durch ihr Dorf zogen und vielerlei Lehren verkündeten. Die vier zitierten Lehren waren die damals bekanntesten. Sie bewegten die Menschen, aber sie wußten nicht, nach wem sie sich nun richten sollten. In anderen Reden wie S 42,13 wird berichtet, wie deshalb Hausväter den Erwachten auf diese innere Not angesprochen haben. Es war wirklich eine innere Not. Manche der einander widersprechenden Asketen machten nach Auftreten und Aussage einen achtunggebietenden Eindruck: Sie hatten immerhin Haus und Familie aufgegeben, um das Heil zu suchen. Aber sie konnten doch unmöglich alle recht haben. Mit diesen umstrittenen Lehren rückte der Buddha den Hausvätern von Sālā im Grund nichts geringeres als die vier gemeinsamen Grundfragen von Religion und Mystik in den Blick, mit denen er oft seine Einführungsgespräche mit in der Häuslichkeit lebenden Heilssuchern begann, nämlich:
+
+1. Geben vermindert den sinnlich wahrnehmbaren Besitz, ist aber mein Vorteil.
+2. Aus allem üblen oder guten Wirken (im Denken, Reden und Handeln) reifen Folgen heran (Karma),
+3. und zwar auch jenseits des Todes des Körpers. Leben = Erleben kann gar nicht von selber aufhören.
+4. Sind aber die inneren Dränge, Kräfte, Fähigkeiten, Programme und Gewöhnungen, aus denen alles Leben/Erleben hervorgeht, keine bloßen Produkte eines »objektiven«, »materiellen« Körpers, dann fehlt dem Glauben jede Grundlage, sie könnten jenseits des Todes auf keine andere Weise weiterbestehen als nur wieder in einem als materiell erlebten Körper. Dann sind auch unter- und übermenschliche Daseinsformen ohne grobstofflich erlebten Körper möglich, so wie es spannungs-, ton- und bildtransportierende trägerlose Ladungen gibt.
+
+Wohlgemerkt: der Buddha hat bis hierher zu den Einwohnern von Sālā nur von Möglichkeiten gesprochen, nicht von dogmatisch festgeschriebenen Glaubenssätzen. – Für die weiterblickenden Zuhörer, die über den Tod...
+
+***
+<sup>2</sup> _Wahlverwandtschaften_.
+
+80
+<!-- PAGE_END: 080 -->

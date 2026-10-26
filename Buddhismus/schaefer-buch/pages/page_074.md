@@ -1,0 +1,21 @@
+<!-- PAGE_START: 074 -->
+Platz und fragte: Habt ihr meinen Vater/meinen Bruder/meine Schwester/meinen Sohn/meine Tochter/meinen Mann gesehen? So ist es zu verstehen, Brahmane, daß ich gesagt habe: Aus Liebem kommt Kummer, Jammer, Leiden, Trauer, Verzweiflung. Das geht aus Liebem hervor. Da war einst hier in Sāvatthī einem Mann die Mutter/der Vater/der Bruder/die Schwester/der Sohn/die Tochter/die Frau gestorben. Durch den Todesfall verlor er den Verstand, das Herz brach ihm, und er zog von Straße zu Straße, von Platz zu Platz und fragte: Habt ihr meine Mutter/meinen Vater/meinen Bruder/meine Schwester/meinen Sohn/meine Tochter/meine Frau gesehen? So ist es zu verstehen, daß ich gesagt habe: Aus Liebem kommt Kummer, Jammer, Leiden, Trauer, Verzweiflung. Das geht aus Liebem hervor.
+
+Hier in Sāvatthī ist einst eine Frau zu ihren Verwandten gegangen. Die trennten sie von ihrem Mann und wollten sie mit einem anderen verheiraten. Das wollte sie nicht. Da sprach die Frau zu ihrem Mann: Mein Geliebter, die Verwandtschaft will mich von dir trennen und mich einem anderen zur Frau geben. Das will ich aber nicht. Da brachte der Mann die Frau um und entleibte sich in dem Gedanken: Im Tod werden wir vereint sein. So ist es zu verstehen, daß ich gesagt habe: Aus Liebem kommt Kummer, Jammer, Leiden, Trauer, Verzweiflung. Das geht aus Liebem hervor.«
+
+Da stand der Brahmane Nālijaṅgho auf, befriedigt und erhoben von der Rede des Erhabenen, ging zu Königin Mallikā und berichtete ihr das ganze Gespräch. Königin Mallikā aber begab sich zu König Pasenadi von Kosalo und sprach: »Was meinst du, großer König: hast du deine Tochter Vajīrī lieb?« – »Freilich habe ich meine Tochter Vajīrī lieb, Mallikā.« – »Was meinst du, großer König, wenn deiner Tochter Vajīrī etwas zustieße, würden dich dann Kummer, Jammer, Schmerz und Verzweiflung erfassen?« – »Das ginge mir ans Leben. Wie sollten mich da nicht Kummer, Jammer, Schmerz und Verzweiflung erfassen?« – »Im Hinblick darauf, großer König, hat der Erhabene gesagt: Aus Liebem kommt Kummer, Jammer, Leiden, Trauer, Verzweiflung. Das geht aus Liebem hervor!«
+
+»Was meinst du, großer König: hast du Prinzessin Vāsabhā<sup>10</sup> und den Feldherrn Viḍūḍabho<sup>11</sup> lieb?« – »Freilich habe ich sie lieb, Mallikā.« – »Was meinst du, großer König, wenn ihnen etwas zustieße, würden dich dann Kummer, Jammer, Schmerz und Verzweiflung erfassen?« – »Das ginge mir ans Leben. Wie sollten mich da nicht Kummer, Jammer, Schmerz und Verzweiflung erfassen?« – »Im Hinblick darauf, großer König, hat der Erhabene gesagt: Aus Liebem kommt Kummer, Jammer, Leiden, Trauer, Verzweiflung. Das geht aus Liebem hervor!«
+
+»Was meinst du, großer König: liebst du mich?« – »Freilich, Mallikā, ich liebe dich.« – »Was meinst du, großer König, wenn mir etwas zustieße, würden dich dann Kummer, Jammer, Schmerz und Verzweiflung erfassen?« – »Das ginge mir ans Leben. Wie sollten mich da nicht Kummer, Jammer, Schmerz und Verzweiflung erfassen?« – »Im Hinblick darauf, großer König, hat der Erhabene gesagt: Aus Liebem kommt Kummer, Jammer, Leiden, Trauer, Verzweiflung. Das geht aus Liebem hervor!«
+
+»Was meinst du, großer König: liebst du dein Reich Kosalo mit Benares?« – »Freilich liebe ich mein Reich, Mallikā. Durch die Größe des Reiches leben wir in Glanz und Pracht.« – »Was meinst du, großer König, wenn dem Reich etwas zustieße, würden dich dann Kummer, Jammer, Schmerz und Verzweiflung erfassen?« – »Das ginge mir ans Leben. Wie sollten mich da nicht Kummer, Jammer, Schmerz und Verzweiflung erfassen?« – »Im Hinblick darauf, großer König, hat der Erhabene gesagt: Aus Liebem kommt Kummer, Jammer, Leiden, Trauer, Verzweiflung. Das geht aus Liebem hervor!«
+
+»Wunderbar, Mallikā, einmalig, Mallikā, mit welchem Klarwissen der Erhabene alles durchschaut und sieht. Rühme ihn nur weiter, Mallikā.« Und König Pasenadi von Kosalo erhob sich von seinem Sitz, ordnete
+
+***
+<sup>10</sup> König Pasenadis Nebenfrau, uneheliche Tochter König Mahānāmas und einer Sklavin.  
+<sup>11</sup> Sohn König Pasenadis und Vāsabhās.
+
+74
+<!-- PAGE_END: 074 -->
