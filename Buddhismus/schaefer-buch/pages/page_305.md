@@ -1,0 +1,22 @@
+<!-- PAGE_START: 305 -->
+> Leichnam zusammen, ein Engel lebt mit einem Engel zusammen.
+> 
+> Und wie lebt ein Leichnam mit einem Leichnam zusammen? Da haben es Mann und Frau an sich, Lebendiges umzubringen, Nichtgegebenes zu nehmen, falsche Geschlechtsbeziehungen zu pflegen, zu lügen, berauschende Getränke und andere die Vernunft und Selbstkontrolle beeinträchtigende Mittel zu nehmen; beide sind tugendlos, voll schlechter Eigenschaften. Mit einem ganz in Schäbigkeit und Engherzigkeit verstrickten Gemüt führen beide das häusliche Leben. Asketen und brahmisch Lebende pflegen sie knickrig und schimpflich zu behandeln. So lebt ein Leichnam mit einem Leichnam zusammen.
+> 
+> Und wie lebt ein Leichnam mit einem Engel zusammen? Da hat der Mann das alles an sich. Dem Wesen der Frau aber widerstrebt es. Sie ist tugendhaft, voll hoher Eigenschaften. Mit einem Gemüt, das ganz frei ist von Schäbigkeit und Engherzigkeit, führt sie das häusliche Leben. Asketen und brahmische Lebende behandelt sie frei von Kleinlichkeit und Schimpf. So lebt ein Leichnam mit einem Engel zusammen.
+> 
+> Und wie lebt ein Engel mit einem Leichnam zusammen? Dem Wesen des Mannes widerstrebt es, Lebendiges umzubringen, Nichtgegebenes zu nehmen, falsche Geschlechtsbeziehungen zu pflegen, zu lügen, berauschende Getränke und andere die Vernunft und Selbstkontrolle beeinträchtigende Mittel zu nehmen; er ist tugendhaft, voll hoher Eigenschaften; mit einem ganz von Schäbigkeit und Engherzigkeit freien Gemüt führt er das häusliche Leben; Asketen und brahmisch Lebende behandelt er frei von Kleinlichkeit und Schimpf. Seine Frau dagegen hat das alles an sich, was dem Mann widerstrebt. So lebt ein Engel mit einem Leichnam zusammen.
+> 
+> Und wie lebt ein Engel mit einem Engel zusammen, Hausleute? Dem Wesen des Mannes und der Frau widerstrebt es, Lebendiges umzubringen, Nichtgegebenes zu nehmen, falsche Geschlechtsbeziehungen zu pflegen, zu lügen, berauschende Getränke und andere die Vernunft und Selbstkontrolle beeinträchtigende Mittel zu nehmen. Beide sind tugendhaft, voll hoher Eigenschaften; mit einem Gemüt ganz frei von Schäbigkeit und Engherzigkeit führen beide das häusliche Leben. Asketen und brahmisch Lebende behandeln sie frei von Kleinlichkeit und Schimpf. So lebt ein Engel mit einem Engel zusammen. Diese vier Arten des ehelichen Zusammenlebens gibt es, Hausleute.«
+
+Der Erwachte faßt abschließend seine Rede in Versen zusammen, die mit derselben Strophe enden wie seine Worte an das Ehepaar Nakula in **A IV,55**.
+
+Aus einem besonderen Anlaß entstand die folgende Rede **A VII,59**:
+
+> Der Erhabene besuchte eines Morgens in Sāvatthī vom Jetahain-Kloster aus Anāthapiṇḍiko in dessen Haus. Dort war Krach. Der Erwachte fragte den verlegen herbeieilenden Anāthapiṇḍiko: »Was ist denn in deinem Haus für ein Lärm, was für ein Geschrei, wie wenn Fischer vom Fang heimkämen?« – »Das ist meine Schwiegertochter Sujāta. Sie ist sehr reich, stammt aus einer wohlhabenden Familie. Sie achtet weder Schwiegermutter noch Schwiegervater noch ihren Mann. Nicht einmal den Erhabenen schätzt sie, achtet ihn nicht, denkt nicht hoch von ihm und ehrt ihn nicht.« – Da rief der Erhabene die Schwiegertochter Sujāta: »Sujāta, komm her!« – »Ja, Herr«, sprach die Schwiegertochter Sujāta, kam zum Erhabenen, begrüßte den Erhabenen und setzte sich seitwärts. Der Erhabene sprach zu ihr: »Folgende sieben Arten von Frauen eines Mannes gibt es; welche sieben? Eine gleicht einer Mörderin, eine einer Diebin, eine einer Tyrannin, eine einer Mutter, eine einer Schwester, eine einer Freundin, eine einer Dienenden. Diese sieben Arten von Frauen eines Mannes gibt es. Zu welcher von ihnen gehörst du, Sujāta?« – »Ich weiß nicht, Herr, was das bedeutet, was der Erhabene kurz gesagt hat. Es wäre gut, Herr, wenn mir der Erhabene die Lehre so erklären würde, daß ich den Sinn verstehen könnte.« – »Dann paß gut auf, Sujāta, ich werde es dir sagen.« – »Sehr gerne«, antwortete Sujāta dem Erhabenen bereitwillig. Der Erhabene sprach:
+> 
+> Wenn sie ein böses Herz hat ohne Mitgefühl, vernarrt in andere, den eignen Mann mißachtet,
+> der Schätze für sie gab, ihn ruinieren will: Wenn eines Mannes Frau derart veranlagt ist,
+
+305
+<!-- PAGE_END: 305 -->
