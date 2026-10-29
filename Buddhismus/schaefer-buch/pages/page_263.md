@@ -1,0 +1,21 @@
+<!-- PAGE_START: 263 -->
+> Ahnen oder den Göttern oder dem König oder meinem eigenen leiblichen Unterhalt zuliebe geführt, zerrt mich nicht in die Hölle, ihr Höllenwächter‘, oder fänden seine Eltern, Frau und Kind, Freunde und Gefährten, Verwandtschaft, Gäste, Ahnen, Gottheiten oder der König Gehör mit dieser Ausrede?« – »Das nicht, Herr Sāriputto. So viel er auch jammern würde: sie würden ihn in die Hölle werfen.«
+
+**HANS:** Uns westliche Menschen befremdet es, wenn hier so selbstverständlich von Hölle gesprochen wird. Die Höllenangst ordnet man heute doch eher dem »finsteren« Mittelalter zu.
+
+**FRITZ:** Die dogmenlose Darlegung in **M 60** zeigt aber, daß wir fahrlässig handeln würden, wenn wir bis zum Gewinn eigener Erfahrungen das Weiterexistieren der Psyche über den Tod des Körpers hinaus – gesteuert durch das Kausalgesetz – nicht als ebenso ernsthafte Möglichkeit in unsere Lebensplanung einbeziehen würden wie alle möglichen unwahrscheinlichen Versicherungsfälle, für die wir bereit sind, Prämien zu zahlen. Wenn wir aber mit der Möglichkeit der Wiedergeburt ernsthaft rechnen – wie kommen wir dann dazu, nur damit zu rechnen, daß zwar ein Guter »drüben« aufwärts kommt, ein Übeltäter aber nicht abwärts? Wir werden auf diese Fragen von Karma und Fortexistenz bald näher zu sprechen kommen. Aber wir können sie doch nicht einfach abtun mit der Floskel: »Das gibt es nicht; denn ich habe so etwas nicht erlebt, und wissenschaftlich bewiesen ist es auch nicht.«
+
+**HANS:** So habe ich es auch nicht gemeint. Es ist nur ungewohnt. Es kostet eben Gedankenarbeit, uns immer wieder über unsere Vorurteile zu erheben. Aber es stimmt: Was müssen manche Menschen schon hier auf Erden leiden. Das muß doch eine Ursache haben. Wenn man das bedenkt, dann kann man sich gut vorstellen, daß ein Minister wie der Minister all das Weh, das er über Menschen gebracht hat, nach dem Tod leibhaftig zu spüren bekommt.
+
+**FRITZ:** Den meisten Indern zur Zeit des Erwachten war das eine selbstverständliche Tatsache. Auch der Erwachte berichtet wiederholt darüber – wie er ausdrücklich betont, aus leibhaftiger Erfahrung. Sāriputto fragt nun den Minister:
+
+> »Was meinst du denn, Dhānañjāni: Wer ist der Bessere: wer all dem zuliebe einen falschen, üblen Lebenswandel führt oder wer all dem zuliebe einen rechten, guten Lebenswandel führt?« – »Wer dem zuliebe einen falschen, üblen Lebenswandel führt, Herr Sāriputto, ist nicht besser; aber wer dem zuliebe einen rechten, guten Lebenswandel führt, der ist besser. Besser als ein falscher, übler Lebenswandel ist ein rechter, guter Lebenswandel, Herr Sāriputto.« – »Es gibt doch wahrhaftig andere, solide, rechte Tätigkeiten, durch die man für Frau und Kind, Freunde, Gefährten und die Verwandtschaft sorgen, seine Pflichten gegenüber Gästen, Ahnen, Göttern und gegenüber dem König erfüllen und auch für das eigene leibliche Wohl sorgen kann, ohne daß man Übles tut, und indem man seinen Weg auf verdienstliche Weise geht.«
+
+– Der Brahmane Dhānañjāni war von den Worten des ehrwürdigen Sāriputto beglückt und erhoben. Der ehrwürdige Sāriputto stand von seinem Sitz auf und ging. Der Minister war durch diese Ermahnung so ergriffen, daß er später Sāriputto an sein Sterbebett bitten ließ. Der große Mönch zeigte ihm den Weg zu Brahmā – obwohl – wie der Erwachte sanft tadelte – »noch mehr zu tun war«, weil auch die Brahmāwelt »hinfällig« ist.
+
+**HANS:** Mir gefällt, daß ihm Sāriputto nicht nahelegt, sich aus der Politik zurückzuziehen, sondern ihn ermahnt, seine Pflicht in einer soliden, rechten Weise zu erfüllen! Menschen, die unreif vor ihren Berufspflichten davonlaufen oder gar nicht erst mit geregelter Arbeit anfangen, um Zeit zur Selbstverwirklichung zu haben, scheitern oft, weil sie nie gelernt haben, auch etwas zu tun, wozu sie keine Lust haben. Gerade auf dem Weg nach innen will ja vieles den Trieben noch gar nicht passen. Da ist doch der Aufruf des Buddha zur Bewährung in beruflicher Strebsamkeit und Fürsorge viel hilfreicher.
+
+**RUTH:** Die Antwort des Ministers auf Sāriputtos Frage, ob er nicht nachlässig sei, zeigt, daß
+
+263
+<!-- PAGE_END: 263 -->
