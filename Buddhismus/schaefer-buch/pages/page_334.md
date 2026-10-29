@@ -1,0 +1,18 @@
+<!-- PAGE_START: 334 -->
+Herz zu wandeln, künftig besser aufzupassen und – wo es geht – den Schaden wiedergutzumachen. Und niemals darf er zum Aburteilen anderer dienen, sondern nur zur Selbstprüfung. Nur wenn diese Sicht der Erinnerung an die Tugenden zugrundeliegt, können sie aus der Sklaverei befreien.
+
+**HANS:** Aus was für einer Sklaverei? Aus der Sklaverei der Triebe?
+
+**FRITZ:** Letztlich ja. Aber das Gleichnis von der Sklaverei zielt vor allem auf den Aspekt der Versklavung durch die vierte der fünf Hemmungen: Geistesunruhe, für die der Erwachte das Gleichnis von der Sklaverei gibt.<sup>37</sup> Bei den sinnlich genießenden Menschen (also auch dem Gros der häuslichen Nachfolger) ist der Geist ja seltener aus Ehrgeiz oder wegen zu starker Anspannung im Heilsstreben unruhig, sondern großenteils deshalb, weil das Gewissen unruhig ist, also wegen Untugend. Als Frucht der heilenden Tugend wird demgegenüber immer das innere Wohl der Untadeligkeit vor dem eigenen Gewissen genannt. Das ist vor allem mit der Befreiung aus der Sklaverei gemeint.
+
+**RUTH:** Mir scheint, die Erinnerung an die heilenden Tugenden führt eher zu Erfolgserlebnissen, als wenn sich der häusliche Nachfolger – von besonders stillen Stunden abgesehen – dauernd die totale Befreiung von den Trieben vor Augen hält. Denn dann müßte er sich ja ehrlicherweise dauernd sagen: »O weh, wie weit bin ich davon noch entfernt«, wenn auch das dadurch erzeugte Klima ständigen Minderwertigkeitsgefühls nicht an das des Kirchenchristen heranreicht, der gehalten ist, alles was er in seinem Leben aufgrund der ihm auferlegten »Erbsünde« getan hat, zu »bereuen«. Aber fast alle häuslichen Nachfolger des Buddha, die sich nicht wegen dieser christlichen Prägung und der Mißverständnisse über die für sie richtige Gangart überfordern, haben die zeitweilige Aufhebung der Hemmung durch Geistesunruhe aus Gewissensdruck schon erlebt und ihren Segen als Aufatmen, als bescheidene innere Freude und inneren Frieden empfunden. Diese Erinnerung ist – auch wenn es oft nur ein kurzer Gedankenblitz sein kann – sozusagen »erste Hilfe«, um schon lange vor der Heilung der Wahnkrankheit zu bescheidenem innerem Wohl zu kommen.
+
+**HANS:** Dann ist also Herzenseinigung, *samādhi*, keine unerreichbare Dimension, nur für Mystiker und halbe Heilige: Zur Einigung führen die heilenden Tugenden. Dabei bin ich ja. – Und dann kommt etwas, das hab' ich mir aus dem bisherigen Gespräch des Buddha mit dem König besonders gemerkt: die Entwicklung zum Loslassen. Früher hätte ich hier eine aufrüttelnde Predigt über Verzichten und Weltüberwindung erwartet. Ich wäre nach allem, was mir bisher schon eingeleuchtet hat, sogar bereit gewesen, einige harte Konsequenzen auf mich zu nehmen – nicht ohne Bänglichkeit, ob ich sie auch durchhalten kann. Nun wird hier aber als Zielvorstellung für die Entwicklung zum Loslassen eine Gemütsart von solcher Weite und Wärme, Großherzigkeit und Freudigkeit beschrieben, daß ich sagen muß: Freunde mit diesen Eigenschaften möchte ich haben, und so möchte ich gern selber werden! Kannst du uns die Beschreibung dieser Gemütsart noch einmal vorlesen, Fritz?
+
+**FRITZ:** Gern, Hans. Der Erwachte hat dem König gesagt: »Weiter, Mahānāmo, kannst du dich in bezug auf dich selber des Loslassens erinnern: Getroffen hab ich's, gut getroffen, daß ich unter der von der Trübung von Engherzigkeit und Geiz besessenen Masse mit einem der Trübung des Geizes entgangenen Gemüt im Haus lebe, das Befreiende am Zurücktreten merke, mit offenen Händen, beim Loslassen Glück empfinde, für Bitten anderer offen bin, Freude daran habe, Gaben auszuteilen.«
+
+***
+<sup>37</sup> Vgl. **A V,193**; **S 46,55**; Gleichnis vgl. **D 11**.
+
+334
+<!-- PAGE_END: 334 -->
