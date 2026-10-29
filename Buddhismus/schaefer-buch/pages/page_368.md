@@ -1,0 +1,21 @@
+<!-- PAGE_START: 368 -->
+fassung, in der man Nichtwiederkehr in einer einzigen Nacht und einem einzigen Tag erreichen kann, ist jenes »ungeheure Vermögen«, das nur erwirbt, wer täglich tausend Taler verdient. Das können die wenigsten. Aber auch wenn es nur ein Taler ist, bleibt es eine garantiert sichere Anlage.
+
+**HANS:** Ach Ruth, wenn wir dich nicht hätten. Du hast natürlich wieder einmal recht. Aber eines ist mir noch nicht klar: Ich habe bis jetzt begriffen, daß weniger die besonderen *Uposatha*-Regeln im Vordergrund stehen, sondern das Ziel des Hauslebens: der Eintritt in die Heilsströmung oder doch das unumkehrbare Betreten des Wegs zum Stromeintritt. Aber was hat das mit all dem zu tun, was mir die Buddhisten über die *Uposatha*-Regeln erzählt haben: Meiden von Abendessen, Kosmetik, Schmuck und hohen Betten?
+
+**FRITZ:** Die Empfehlungen des Buddha für den Feiertag kann man nicht verstehen, wenn man den Feiertag nur von außen sieht als den Tag, an welchem man eine Art »buddhistische Leistung« vollbringt, indem man eine Reihe »altehrwürdiger Unbequemlichkeiten« auf sich nimmt, die man vielleicht wettmacht durch weihevolle Stimmung. Das wäre zwar immer noch etwas mehr als nichts, aber nicht sehr viel. Besser, man fängt damit an, zunächst einmal in das Verständnis dieser Anleitungen hineinzuwachsen. Am besten führen wir uns das anhand der ausführlichsten Darstellung des Feiertags vor Augen, die der Erwachte gegeben hat in der Rede
+
+**A III,71**
+
+> Einstmals weilte der Erhabene in Sāvatthī im Ostkloster auf Mutter Migāros Terrasse. Da kam an einem *Uposatha*-Tag Visākhā, die Mutter Migāros, zum Erhabenen, begrüßte den Erhabenen ehrerbietig, wechselte höfliche, freundliche Worte mit ihm und setzte sich seitwärts. Der Erhabene sprach: »Nun, Visākhā, weshalb kommst du in der Mittagszeit?« – »Den *Uposatha*-Tag begehe ich heute, Herr.« – »Es gibt drei Arten von *Uposatha*-Tagen, Visākhā; welche drei? Den *Uposatha*-Tag der Hirten, den *Uposatha*-Tag der Freien Brüder und den heilenden *Uposatha*-Tag der wahren Menschen.
+> 
+> Was ist der *Uposatha*-Tag der Hirten, Visākhā? Das ist, wie wenn ein Hirte am Abend die Kühe dem Herdenbesitzer heimgetrieben hat und dann denkt: Heute haben die Kühe an der und der Stelle geweidet; an der und der Stelle sind sie zur Tränke gegangen. Morgen werden sie an der und der Stelle weiden, an der und der Stelle zur Tränke gehen. So, denkt mancher, der den *Uposatha*-Tag begehen will: Heute habe ich die und die festen Speisen und die und die weichen Speisen gegessen; morgen will ich dann die und die festen und die und die weichen Speisen essen.
+> 
+> Und was ist der *Uposatha*-Tag der Freien Brüder, Visākhā? Es gibt eine Art Pilger, die nennen sich Freie Brüder. Die leiten ihre Jünger so an: Komm, lieber Mann: Gegenüber allen Wesen bis hundert Meilen im Westen, Osten, Norden, Süden laß ab von Gewalt.«
+
+**HANS:** Das ist doch etwas Gutes.
+
+**FRITZ:** Und was ist mit den Wesen jenseits der Hundertmeilengrenze? Gewalt gegen die »Fremden«, die Grenzvölker, die »Ausländer« bliebe möglich. Darauf weist der Erwachte hin: »So leiten sie gegenüber den einen Wesen zu Schonung und Mitempfinden an, gegenüber den andern nicht. – Am *Uposatha*-Tag leiten sie ihre Jünger so an: Komm, lieber Mann, leg alle Kleider ab und sprich: ‚Nicht bin ich irgendwo irgendwem zugehörig, und nicht hab ich irgendwo mit irgendwas irgendwie zu tun.‘ Ihre Eltern wissen aber doch, daß er ihr Sohn ist, und er weiß doch auch, daß das seine Eltern sind. Seine Frau und seine Kinder wissen, daß er ihr Ernährer ist, und er weiß doch auch, daß das seine Frau und seine Kinder sind. Sein Gesinde und seine Arbeiter wissen, daß er ihr Herr ist, und er weiß doch auch: Das sind meine Diener und Arbeiter. Unter diesen Umständen leiten die, die zur Wahrheit anleiten sollten, zur Unwahrheit an; in bezug auf ihn ist das eine Lüge: Am andern Morgen nimmt er jenen Besitz wieder an sich, obwohl er ihm nicht zurückgegeben worden ist. Das ist bei ihm Nehmen von Nichtgegebenem. Das ist der *Uposatha*-
+
+368
+<!-- PAGE_END: 368 -->

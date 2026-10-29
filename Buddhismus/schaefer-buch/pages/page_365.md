@@ -1,0 +1,20 @@
+<!-- PAGE_START: 365 -->
+lichkeiten, die man vertut, wenn man seiner gewohnten Vorstellung vom »Sonntag« verhaftet bleibt. Wenn mich Freunde nach dem Feiertag fragen, antworte ich gern: Hören wir uns doch – ohne uns gleich zu irgendeiner sofortigen Konsequenz aufgerufen zu fühlen – in aller Gemütsruhe an, wozu denn dieser Feiertag gut sein soll und welche Gemütshaltung ihm entspricht. Denn darüber hat der Erwachte viel Schönes gesagt. Wenn auch wir das schön und gut und richtig oder gar notwendig finden, dann laßt uns nicht gleich heroische Konsequenzen an dieses Schöne und Gute und Richtige mit positiver Bewertung denken und es nicht aus den Augen verlieren. Dann wird man ja sehen, what sich daraus entwickelt.
+
+**HANS:** Du sagst, der Buddha hätte die häuslichen Nachfolger nie unter Druck gesetzt, den Feiertag einzuhalten. Aber wie hat er sie denn dazu angeregt?
+
+**FRITZ:** So viele Darlegungen des Erwachten es über den Feiertag gibt – ich habe bis auf eine einzige Ausnahme keine gefunden, in welcher er seine Verehrer auch nur kontrollierend gefragt hätte, ob sie den *Uposatha*-Tag einhalten, obwohl das zu seiner Zeit viel verständlicher gewesen wäre als heute, weil *Uposatha* schon lange vor dem Erwachten vorwiegend dem brahmischen Leben gewidmet war. Wir können das z.B. entnehmen aus der Rede
+
+**A X,119**
+
+> An einem Feiertag stand der Brahmane Jānussoṇi mit gewaschenem Kopf, in ein Paar frische Leinentücher gekleidet, mit feuchtem Kusagras in der Hand in der Nähe des Erhabenen am Wegesrand. Als der Erhabene ihn so stehen sah, sprach er zu ihm: »Was stehst du denn hier am Feiertag mit gewaschenem Kopf, in ein Paar frische Leinentücher gekleidet, mit feuchtem Kusagras in der Hand am Wegesrand, Brahmane? Was ist denn heute bei den Brahmanen?« – »Bei den Brahmanen ist heute der Reinigungstag<sup>61</sup>, Herr Gotamo.« – »Wie spielt sich denn bei den Brahmanen der Reinigungstag ab?« – »Da bestreichen heute, am Reinigungstag, die Brahmanen, mit gewaschenem Kopf, in ein Paar frische Leinentücher gekleidet, den Boden mit feuchtem Kuhmist, streuen grünes Kusagras darüber und schlafen zwischen dem Ufer und der Feuerhütte, Herr. Dreimal in der Nacht stehen sie auf und bringen dem Feuer mit gefalteten Händen ihre Verehrung dar mit den Worten: Wir reinigen dich, o Herrlichkeit. Wir reinigen dich, o Herrlichkeit. Mit reichlich zerlassener und frischer Butter nähren sie das Feuer, und nach Ablauf der Nacht bewirten sie die Brahmanen mit feiner fester und weicher Speise. So spielt sich der Reinigungstag der Brahmanen ab, Herr Gotamo.« – »Das ist aber ein Unterschied, wie bei den Brahmanen der Reinigungstag begangen wird und wie er nach der Heilsanleitung begangen wird, Brahmane.« – »Wie wird er denn nach der Heilsanleitung begangen, Herr Gotamo? Es wäre gut, wenn der Herr Gotamo mir die Lehre darüber darlegen würde.« – »Gern, Brahmane, hör gut zu, ich will es dir sagen.« – »Ja, Herr«, stimmte der Brahmane Jānussoṇi zu. Der Erhabene sprach:
+> * Aus falscher Ansicht geht schlechte Ernte hervor, schon in diesem Leben und im Jenseits. Indem man sich das gründlich vor Augen hält, tilgt man falsche Ansicht aus, reinigt sich von falscher Ansicht.
+> * Aus falscher Gemütseinstellung geht schlechte Ernte hervor, schon in diesem Leben und im Jenseits. Indem man sich das gründlich vor Augen hält, tilgt man falsche Gemütseinstellung, reinigt sich von falscher Gemütseinstellung.
+> * Aus falscher Rede geht schlechte Ernte hervor, schon in diesem Leben und im Jenseits. Indem man sich das gründlich vor Augen hält, tilgt man falsche Rede, reinigt sich von falscher Rede.
+> * Aus falschem Handeln geht schlechte Ernte hervor, schon in diesem Leben und im Jenseits. Indem
+
+***
+<sup>61</sup> Vgl. *ANyI*, Anm. 133 zu dieser Rede in seiner Übersetzung.
+
+365
+<!-- PAGE_END: 365 -->

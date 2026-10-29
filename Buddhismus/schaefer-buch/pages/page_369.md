@@ -1,0 +1,20 @@
+<!-- PAGE_START: 369 -->
+> Tag der Freien Brüder. Wird der *Uposatha*-Tag so zugebracht, dann bringt er nicht seine große Frucht und seinen großen Segen, hat nicht seinen mächtigen Glanz und seine große durchdringende Kraft.
+> 
+> Was aber ist der *Uposatha*-Tag der wahren Menschen, Visākhā? Er ist die Reinigung des verschmutzten Herzens durch richtiges Vorgehen.«
+
+**HANS:** Der Buddha fängt also auch hier – ähnlich wie in der anderen Rede vorhin – nicht gleich damit an, daß er *Uposatha*-Regeln nennt, sondern er zeigt erst, daß es beim Feiertag um die Reinigung des Herzens geht.
+
+**RUTH:** Dazu fällt mir ein Vergleich ein: Wer seine Wohnung sauberhalten will, bestimmt einen Tag in der Woche zum Putztag. Unvergleichlich wichtiger als die Reinigung der Wohnung ist aber die Reinigung des Herzens. Und so ist der *Uposatha*-Tag der wahren Menschen der Herzputztag.
+
+**FRITZ:** Wunderbar, Ruth. So nenne ich den Feiertag schon seit einigen Jahren, und zu meiner Freude fand ich unabhängig davon im Tagesspruchkalender des Buddhistischen Seminars eine Parallele in einem Wort von Phil Bosmans: »Tu etwas für dein Gesicht von innen: Fröhlichkeit in deine Augen legen und ein Leuchten. Den Mund entspannen und lächeln. Ein freundliches Gesicht machen. Das geht, wenn du Hausputz hältst, Hausputz des Herzens: ausfegen, was da wurmt und grämt; ausräumen, was da gemeckert und gemäkelt wird.« Das ist die richtige Haltung für *Uposatha*. Wenn wir das nicht aus dem Auge verlieren, werden wir richtig vorgehen. Der Erwachte erklärt in dem nun folgenden Abschnitt vorab, wie der Nachfolger sich zuerst durch die sechs unübertrefflichen Erinnerungen ein inneres Fundament aufbaut, auf das die einzelnen *Uposatha*-Regeln überhaupt erst ihren Sinn erhalten: »Wieso ist er denn die Reinigung des verschmutzten Herzens durch richtiges Vorgehen, Visākhā? Da erinnert sich der Heilsgänger so an den Vollendeten: Das ist wahrhaftig der Erhabene, genesen, der Vollkommen Erwachte, vollendet in Wissen und Wandel, zum Heil gekommen, der Welt Kenner, der beste Lenker der erziehbaren Menschen, der Meister der Himmelswesen und Menschen, erwacht, erhaben. Während ein Heilsgänger sich so an den Vollendeten erinnert, wird das Herz gestillt, und was an Herzensflecken da ist, das verschwindet, wie wenn ein verschmutzter Kopf durch richtiges Vorgehen gereinigt wird. Und wie wird ein verschmutzter Kopf durch richtiges Vorgehen gereinigt? Mit Reinigungspaste, Reinigungserde, Wasser und durch rechtes Mühen des Menschen – so kommt die Reinigung eines schmutzigen Kopfes durch richtiges Vorgehen zustande. Genauso kommt die Reinigung eines verschmutzten Herzens durch richtiges Vorgehen zustande. Und wie, Visākhā? Da erinnert sich der Heilsgänger so an den Vollendeten: ... Während er sich so an den Vollendeten erinnert, wird das Herz gestillt, und was an Flecken des Herzens da ist, verschwindet. Den nennt man einen Heilsgänger, der den *Uposatha*-Tag brahmisch begeht, bei Brahma weilt; und sein zu Brahma hingerecktes Herz wird gestillt, innere Freude geht auf, und was an Herzensflecken da ist, das verschwindet. So kommt die Reinigung eines verschmutzten Herzens durch richtiges Vorgehen zustande.«
+
+**RUTH:** Wie gut, daß wir schon so gründlich über die sechs unübertrefflichen Erinnerungen gesprochen haben. Ich hätte sonst nicht so deutlich gemerkt, welche machtvollen Meditationen das sind: sechs höhere Dinge, die schon voraussetzen, daß man in den fünf Heilssinnen – den Sinnen für Vertrauen, Energie, Wahrheitsgegenwart, Herzenseinigung und Klarwissen – gefestigt ist.<sup>62</sup> Gleich bei dem ersten dieser höheren Dinge wird gezeigt, wie sie zwangsläufig zu »innerer Freude« führen – ohne die ja niemand über die Sinnensucht hinwegkommen kann.
+
+**HANS:** Daß dabei das Herz gestillt wird, kann ich nachempfinden. Der Buddha hat ja dem König Mahānāmo gesagt, während einer solchen Erinnerung sei der Nachfolger nicht von Hinneigung, Abneigung und Blendung besessen und inmitten der fehlgehenden, drangvollen Masse
+
+***
+<sup>62</sup> Vgl. **A XI,12** + **13**.
+
+369
+<!-- PAGE_END: 369 -->
