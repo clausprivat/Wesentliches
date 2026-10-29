@@ -5,7 +5,9 @@
 
 **FRITZ:** Dieser positiven Bewertung der Harmonie möchte ich nur dann beitreten, wenn Harmonie im höchsten, aus der Musik stammenden Sinn des »Ein-Klangs« verstanden wird. Im landläufigen Sinn dagegen verbindet sich mit dem Ruf nach Harmonie oft der Anspruch, sachliche, einer Lösung bedürftige Kontroversen einer harmonischen Stimmung zuliebe zu verdrängen oder zu verharmlosen, statt sie aufzulösen. Darum kann es nicht gehen. Das Pāliwort *samāggha*, das hier mit Eintracht wiedergegeben worden ist, reicht sehr hoch hinauf: *Sam* heißt »zusammen«, *aggha* heißt die Spitze, das Höchste. Das bedeutet also nicht bloße Einigkeit in einer momentanen Einzelfrage oder Stimmung, sondern Einigkeit in einer Grundausrichtung, die nicht bei weltlichen Zwecken oder Gemeinsamkeiten haltmacht, sondern einmündet in das höchste Streben des Menschen: Das Streben nach ewigem Frieden, nach absoluter Freiheit von Wahn und Abhängigkeit, nach Erlösung.
 
-**HANS:** Das mancherlei –
+**HANS:** Aber man hat es doch nicht nur mit Menschen zu tun, die nach dem Höchsten streben.
+
+**FRITZ:** Gewiß. Aber es geht nicht so sehr darum, ein kleinstes gemeinsames Vielfaches der momentanen kontroversen Einzelpunkte zur Grundlage der Regelung zu machen, sondern das
 
 ***
 <sup>27</sup> Joachim Matthes: *Das Gesicht wahren, eine kulturelle Regel im interkulturellen Vergleich*, *Universitas*, 46. Jg. (1991), Heft 5, S. 429 ff. und 438 ff.
