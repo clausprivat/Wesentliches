@@ -1,0 +1,19 @@
+<!-- PAGE_START: 282 -->
+kunft beruht und nach Eintracht strebt, gehen die Menschen in ihre Versammlungen zwar im Bewußtsein des je eigenen Standpunkts, aber schon von vornherein in allem mit dem Leitbild: »Ich will mich in dieser Versammlung um Eintracht mühen« – also nicht in dem Sinn, den ich einmal auf einem scherzhaften Auto-Aufkleber las: »Jeder Mensch hat das Recht auf meine Meinung« –, sondern daß ich gegenüber den Mit-Teilnehmern bereit bin zu geben, insbesondere auch nachzugehen, auch bei verschiedenen Meinungen und aller notwendigen Offenheit, Festigkeit und Klarheit mit ihnen über die Besprechungspunkte »liebevoll zu reden«, Beratung und Mit-Teilnehmer »hilfreich zu fördern«, sie und alle Betroffenen »als mir gleich anzusehen«. – Sie lassen es aber nicht nur bei diesem guten Vorsatz bewenden, sondern sind mit allen Kräften bemüht, ihm auch bei der Beratung der gemeinsamen Angelegenheiten treuzubleiben. Wenn sie das getan haben, so gut sie es vermochten, es ist aber dennoch nicht alles nach Wunsch gelaufen, dann hadern sie nicht, sondern sind redlich bemüht, auch in der neuen Situation nach diesen Leitbildern zu denken, zu reden und zu handeln. Meint ihr nicht, daß dann das Einstimmigkeitsprinzip funktionieren kann?
+
+**HANS:** Ja, wenn... Aber das ist ein schöner Traum. Das funktioniert doch nie.
+
+**FRITZ:** »Nie« möchte ich nicht sagen: In meinem früheren Beruf war es z. B. ein Erfahrungssatz, bei Unternehmen lieber eine zweiköpfige Spitze zu bilden als eine dreiköpfige, weil sich dann die beiden »über alles einigen müssen«. Auch wenn man es kaum für möglich hält: Aber wenn Wohl und Weh des Unternehmens oder der Körperschaft und damit auch die Position der beiden Spitzenleute von diesem permanenten Sich-Einigen abhängen, dann – o Wunder – können sie sich auch tatsächlich einigen.
+
+**HANS:** Aber das geht doch nur bei kleinen Körperschaften.
+
+**FRITZ:** Das will ich nicht sagen: Selbst vielköpfige Vorstände von Großkonzernen haben manchmal zwei Vorstandssprecher, nicht nur einen, die zum Wohl aller Beteiligten gut auskommen müssen.
+
+**HANS:** Aber beim Bundestag oder auch nur bei einem Gemeinderat funktioniert das doch nie. Da bleibt nur das demokratische Mehrheitsprinzip.
+
+**FRITZ:** Versteht mich bitte nicht falsch: Ich will nicht im mindesten etwas gegen die parlamentarische Demokratie als eine brauchbare Spielregel im Wahnspiel sagen. Und ich sage auch nicht, in Asien ginge alles einstimmig: Ob Einstimmigkeit oder das Mehrheitsprinzip funktioniert, hängt beides von den Umständen ab, vor allem auch vom Grad des Gemeinsinns und des ehrlichen Strebens nach Eintracht und von der Wichtigkeit einer Einigung. Man darf von der Lehre des Buddha – wie überall auch in der abstrakten und daher ziemlich sinnlosen Frage nach der besten Staatsform – kein »Rezept« erwarten. Das ist so unterschiedlich, wie Menschen und Wahn-Spiele unterschiedlich sind. Aber gerade deshalb sollten wir sehen: Für die in den letzten 200–300 Jahren immer maßstabloser gewordenen westlichen Menschen ist zwar die parlamentarische Demokratie mit dem Mehrheitsprinzip wahrscheinlich noch am ehesten in der Lage, gröbste Unterdrückung und totale Unkontrolliertheit der öffentlichen Macht auch dann zu verhindern, wenn einzelne hervorragende Staatsmänner (oder -frauen) fehlen. Sie ist aber deshalb noch lange nicht der allein seligmachende leuchtende Gipfel menschheitlicher Möglichkeiten, sondern ein hilfreiches »kleineres Übel« für Menschengruppen, deren Mehrzahl das innere Empfinden für wahren Gemeinsinn und Eintracht abhandengekommen ist.
+
+**HANS:** Wir spotten gern über lange Verhandlungen und nennen sie »Palaver«. Aber ich habe gehört, in anderen Erdteilen, vor allem in Afrika, sei man so von der Notwendigkeit durchdrungen, gemeinsame Angelegenheiten nur wirklich gemeinsam – nämlich einstimmig – zu regeln, daß man
+
+282
+<!-- PAGE_END: 282 -->

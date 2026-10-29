@@ -1,0 +1,19 @@
+<!-- PAGE_START: 283 -->
+einfach so lang miteinander redet und redet – und sei es Tage und Nächte hindurch –, bis Einigkeit erzielt ist; andernfalls unterbleibt die besprochene Maßnahme.
+
+**FRITZ:** Sieh an: Heute steht dazu gerade ein Hinweis aus der Unternehmenspraxis in der Zeitung: Zwei Mitarbeiter der Heidelberger Druckmaschinen AG berichten aus einer afrikanischen Niederlassung: »... und für alle Entscheidungen gilt das Prinzip der Konsensfindung durch *nemawashi* – endlose Diskussionen bis zum höchstmöglichen Grad der Harmonie. Was uns gelegentlich eher wie Wischiwaschi mit einem ungeheuren Maß an Zeitverlust vorkommt, zahlt sich aber aus; denn in der Umsetzungsphase geht alles viel schneller und reibungsloser. Niemand stellt mehr in Frage, bremst oder blockiert, nur weil es von oben angeordnet wurde...«<sup>29</sup>
+
+**HANS:** Wie wenig war mir bei Beginn unserer Gespräche das Gesetz bekannt: Erst was der Mensch häufig bedenkt und überlegt, dahin geneigt wird das Herz. Wie sicher hatte ich gemeint, wenn man nur im Geist einmal etwas eingesehen hat, dann ist alles getan. Je mehr ich daran denke, um so verständlicher erscheint mir dieses lange und geduldige miteinander Reden, bei dem Standpunkte wiederholt werden. Auch da, wo am Ende die Mehrheit entscheidet, wird ja trotzdem vorher oft endlos »palavert« – nur eben meist zum Fenster hinaus und mit dem Gegenteil von Eintracht. Wo die Gesinnung der Eintracht fehlt, ist auch bei der parlamentarischen Demokratie jener Sand im Getriebe, der zu »Staatsverdrossenheit« führen kann. – Aber sag mal, Fritz: Wie ist das eigentlich im Orden des Buddha: Einstimmigkeit oder Mehrheit?
+
+**FRITZ:** Die Ordensregeln sehen Mehrheitsentscheidungen nur bei Meinungsverschiedenheiten über Lehre und Ordnung vor. Wo es dagegen um einen einzelnen Menschen und sein Verhalten geht – etwa bei Ordensaufnahme, Ausschluß oder Strafen –, bedarf es der Einstimmigkeit in der betreffenden Ordensversammlung.<sup>30</sup>
+
+**HANS:** Das verblüfft mich. Eher kann man doch über Ordensaufnahme oder -ausschluß die Mehrheit entscheiden lassen als über die Wahrheit!
+
+**FRITZ:** Eine Mehrheitsentscheidung im Orden war ja keine Volksabstimmung. Der Erwachte hatte für die Ordensverfassung nur die Zeit eines intakten Ordens im Auge, die er mit 500 Jahren ansetzte: Wie jede menschliche Einrichtung werde auch der Orden im Lauf der Zeit zerfallen, das heißt vor allem: nicht mehr genug jederzeit erreichbare Geheilte oder Nichtwiederkehrer aufweisen. Bis dahin aber gewährleistete eine hohe Anzahl von Geheilten, Nichtwiederkehrern und anderen Gesicherten und ihre Vorbildwirkung allemal bei der Mehrheit der Ordensmitglieder ein Maß an Eintracht über die Wahrheit, das Mißbräuche bei Lehr- und Ordensentscheidungen ausschließt. Solange ein intakter Orden bestand, konnte das Mehrheitsprinzip in Fragen der Lehre und Ordnung also nur deren Bestand bewahren helfen und vor dem Einfluß Geblendeter schützen. Anders bei Ordensaufnahme und -ausschluß, wo sich bei Mehrheitsentscheidungen Sympathien und Antipathien Einzelner hätten auswirken können. Wenn sich keine Einstimmigkeit dafür fand, ob die detailliert geregelten Voraussetzungen für die Aufnahme in den Orden vorlagen, konnte der Bewerber eben nicht Mönch werden – aber im Haus als *brahmacārī* leben und es bei entsprechendem Vorgehen bis zum Nichtwiederkehrer bringen; und wenn sich keine Einstimmigkeit dafür fand, ob die meist genau geregelten Voraussetzungen für eine Disziplinarmaßnahme vorlagen, dann blieb der Beschuldigte eben davon verschont.
+
+***
+<sup>29</sup> *Rhein-Neckar-Zeitung*, Heidelberg, 31.7./1.8.1993.  
+<sup>30</sup> Werner Hecker: *Allgemeine Rechtsgrundsätze in der Buddhistischen Ordensverfassung (Vinaya)*, in: *Verfassung und Recht in Übersee*, 10. Jg. (1977), Heft 1, S. 89 ff.
+
+283
+<!-- PAGE_END: 283 -->
