@@ -1,0 +1,19 @@
+<!-- PAGE_START: 235 -->
+Möglichkeit belächelt oder gar bespöttelt – es sei denn, er hat früher selber anderen in der Not geholfen, obwohl sie seine Hilfsangebote bespöttelt hatten. Nur wer gesät hat, kann ernten. Den Illusionen des Wunschdenkens stellt der Erwachte die richtigen und allein wirksamen Wirkensweisen gegenüber, um zu schwer zu erlangenden erwünschten Dingen zu gelangen. Und da stellt sich etwas Wunderbares heraus: Jene eine Eigenschaft, durch deren Entwicklung man diese erwünschten Dinge am sichersten erlangt, ist zugleich jene eine Eigenschaft, die der Erwachte – etwa in **S 3,17** und **S 3,18** – als Inbegriff aller heilstauglichen Eigenschaften bezeichnet und von der er in **S 3,17** gesagt hatte:
+> »Wenn einer sich nach Fülle und nach dem Erhab'nen, Hohen sehnt,  
+> so raten ihm die Weisen stets Ernsthaftigkeit bei gutem Tun.«
+
+**HANS:** Das heißt doch: Statt buddhistischer als der Buddha sein zu wollen, sich zu seinen Wünschen nach Wohlstand, Schönheit, Wohlbefinden und Ansehen hier und drüben bekennen, ohne sie überzubewerten, auch ihre Begrenztheit sehen, aber sie sich nicht verkneifen, sondern die Anleitung des Buddha zum Erlangen dieser Dinge mit jenen Mitteln, die auch das Herz heller machen, genau befolgen. Damit beginne ich schon – ob ich es weiß oder nicht – die zentrale Eigenschaft auszubilden, die am Ende auch zum letzten Ziel, zur Todlosigkeit, zum höchsten Heilsstand führt: die Ernsthaftigkeit.
+
+**FRITZ:** Ja, Hans. Wer das Ziel dabei im Auge behält, kann ohne Kasteiung und ohne Darben nach und nach zu einem Menschen werden, dessen Art es ist, daß er erlangt, was er sich noch an Weltlichem wünscht, zu einem »Erlanger« (_lābhī_), den die Menschen dann einen »Glückspilz« nennen.
+
+**HANS:** Was bedeutet eigentlich diese »Ernsthaftigkeit« genau?
+
+**FRITZ:** Das hat der Erwachte Anāthapiṇḍiko erklärt in **A IV,61**:
+> Zu dem seitwärts sitzenden Hausvater Anāthapiṇḍiko sprach der Erhabene: »Vier erwünschte, begehrte, angenehme Dinge sind in der Welt schwer zu erreichen, welche vier? Wenn ich doch nur auf anständige Weise zu Besitz kommen könnte. Das ist das erste erwünschte, begehrte Ding, das in der Welt schwer zu erlangen ist. Wenn man dann auf anständige Weise zu Besitz gekommen ist, denkt man: Wenn ich doch nur bei meinen Verwandten und Bekannten anerkannt würde! Das ist das zweite erwünschte, begehrte Ding, das in der Welt schwer zu erlangen ist. – Wenn man dann auf anständige Weise zu Besitz gekommen und bei seinen Verwandten und Bekannten anerkannt ist, dann denkt man: Wenn ich doch nur lange leben und bei Kräften bleiben könnte! Das ist das dritte erwünschte, begehrte Ding, das in der Welt schwer zu erlangen ist. Wenn man dann auf anständige Weise zu Besitz gekommen ist, bei seinen Verwandten und Bekannten anerkannt ist, lange lebt und bei Kräften bleibt, dann denkt man: Wenn ich doch nur nach dem Absterben des Körpers, jenseits des Todes, auf gute Fährte gelange, in himmlische Welt. Das ist das vierte erwünschte, begehrte Ding, das in der Welt schwer zu erlangen ist.
+> Zum Erlangen dieser vier erwünschten, begehrten, angenehmen Dinge, die in der Welt schwer zu erlangen sind, führen vier Eigenschaften. Welche vier? – Bewährung in Vertrauen, Tugend, Loslassen, Klarwissen.
+> Was ist Bewährung in Vertrauen? Da ist ein Heilsgänger voll Heilsvertrauen. Er baut auf die Wachheit des Vollendeten: Das ist wahrhaftig der Erhabene, geheilt, der Vollkommen Erwachte, vollendet in Wissen und Wandel, zum Heil gekommen, der Welt Kenner, der höchste Lenker der anzuleitenden Menschen, der Meister der Götter und Menschen, erwacht, erhaben. Das nennt man Bewährung in Vertrauen.
+> Und was ist Bewährung in Tugend? Da widerstrebt es dem Wesen eines Heilsgängers, Lebendiges umzubringen, Nichtgegebenes zu nehmen, falsche Geschlechtsbeziehungen zu pflegen, zu lügen, Alkohol oder an-
+
+235
+<!-- PAGE_END: 235 -->
