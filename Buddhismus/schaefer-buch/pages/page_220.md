@@ -1,0 +1,19 @@
+<!-- PAGE_START: 220 -->
+ihm der Erwachte über die Asketen nur so viel geantwortet, wie gefragt war, nämlich was für ihn Gründe für Lob und Tadel bei sich kasteienden Asketen – und nur bei diesen – sind. Wohl aber hat der Erwachte und das ist bemerkenswert – diese Frage (ohne daß danach gefragt war) als Aufhänger genommen, um jenen erschöpfenden, den Hauptteil der Rede ausmachenden Überblick zu geben, wann häuslich lebende sinnlich Genießende zu tadeln und zu loben sind, und hier den Unterschied zwischen asketischer Lebensweise und Nachfolge in lauter Häuslichkeit beim Umgang mit Besitz und Genuß ganz deutlich herauszuarbeiten. So wichtig war es dem Erwachten, über diesen Unterschied der Gangart Klarheit zu schaffen.
+
+Blicken wir noch einmal auf die bisherige Rede zurück: Zuerst verneint der Erwachte die Frage des Amtmanns, ob er wirklich jede Askese tadelt. Er lehre nur, daß Asketen zwei Extreme zu meiden haben: Hingabe an (jegliches) sinnliches Begehren und Kasteiung. – Daß Kasteiung (Entbehren zur Selbstabtötung) für in der Häuslichkeit Lebende erst recht ein zu meidendes Extrem wäre, ist deutlich genug damit ausgedrückt, daß im Haus lebende Anhänger, die es sich mit ihrem Besitz nicht selber angenehm und befriedigend machen, ausdrücklich getadelt, dagegen gelobt werden, wenn sie es tun. Niemals hat der Erwachte auch nur in einer einzigen Rede über den rechten Umgang mit Besitz und Genuß den häuslich Lebenden – einschließlich der Heilsgänger unter ihnen – nahegelegt, sich auch auf der Sinnlichkeitsebene vom Genießen radikal fernzuhalten oder es mit Sinnendingen ja nie in Fülle, »sich selber angenehm und befriedigend« zu machen, sondern nur kärglich, immer nahe der Schmerzgrenze. – Das wäre, wie wenn man dem Fisch raten wollte, sich vom Wasser bis zur Grenze des Erstickens fernzuhalten.
+
+**HANS:** Aber ich habe einmal von einem Gleichnis gehört: wenn man wisse, wie gefährlich sinnliches Begehren sei, dann müsse man sich verhalten wie ein Mensch, der aus einem funkelnden Becher mit – wie er weiß – sofort tödlichem Gift trotz großem Verlangen nicht trinkt, oder wie ein Mensch, der einer furchtbaren Giftschlange nicht die Hand oder den Zeh hinstreckt. So müsse die Haltung des Heilsgängers bei jeder Sinnengenußmöglichkeit sein.
+
+**FRITZ:** Dieses Gleichnis bringt der Buddha in **M 105** im Gespräch mit einem Prinzen nicht als Meditationsobjekt für häuslich Lebende, sondern um zu zeigen,
+
+**HANS:** ... wie Mönche oder Nonnen mit Sinnendingen umgehen?
+
+**FRITZ:** Nicht einmal das. Der Buddha bringt das Gleichnis nur für die Unmöglichkeit sinnlicher Genußwillensbildung bei einem Mönch, der nicht nur von allen fünf untenhaltenden Verstrickungen, sondern schon von den ersten drei der fünf obenhaltenden Verstrickungen – also auch von jeglichem Dünken einschließlich »Ich-bin-Empfinden« – befreit und deshalb von der Auflösung von Wahrnehmungsempfindung angezogen ist. Wir kommen in anderem Zusammenhang noch darauf. Es ist also überhaupt kein Gleichnis für den Umgang eines Heilsgängers in der Häuslichkeit mit Besitz und Genuß.
+
+**HANS:** Dann sieht ein solcher Mönch an der Schwelle zur Heilung und ein Geheilter also ständig fauchende Giftschlangen um sich und in Speisen und Getränken Arsenik, aber in der beruhigenden Gewißheit, daß sie ihm nichts tun können?
+
+**FRITZ:** Nein, nein, Hans. Das Gleichnis schildert eine Frucht der Übungen eines so weit fortgeschrittenen Mönches, der von der Auflösung der Wahrnehmungsempfindung angezogen ist. Es steht nicht für sein »Lebensgefühl«. Er braucht gar nicht mehr darum zu kämpfen, daß sich kein Sinnenlustwollen bildet. Das ist bei ihm unmöglich. Da faucht nichts und giftet nichts: da ist so tiefer Friede, daß nichts Äußeres mehr beeinflussen kann. Wenn du dir die Rede einmal genau durchliest, wirst du es bestätigt finden.
+
+220
+<!-- PAGE_END: 220 -->

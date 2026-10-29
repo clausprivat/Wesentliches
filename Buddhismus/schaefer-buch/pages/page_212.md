@@ -1,0 +1,21 @@
+<!-- PAGE_START: 212 -->
+> zusammengeflickt, und als Fahrzeug diente ihm ein alter Karren mit einem Verdeck aus Blättern.«
+> »So ist das, großer König, so ist das, großer König: Wer kein wahrer Mensch ist (_a-sappuriso_) und kommt zu großem Vermögen, macht es damit sich selbst nicht angenehm und befriedigend, macht es Frau und Kind, Eltern, Freunden und Gefährten nicht angenehm und befriedigend und den brahmisch Lebenden und Pilgern gibt er keine Spenden, die das geistige Wohl fördern, zum Himmel führen, Wohl heranreifen lassen, zum Segen führen. Dessen Besitz wird nicht richtig genutzt, und so beschlagnahmen ihn die Könige, oder Diebe stehlen ihn, oder Feuer verzehrt ihn, oder Wasser schwemmt ihn fort, oder ungeliebte Erben nehmen ihn an sich. Wenn es sich so verhält, großer König, werden die Reichtümer nicht richtig genutzt, sondern zugrundegerichtet und dienen nicht als Mittel zur Befriedigung.<sup>27</sup> Das ist, großer König, wie wenn ein Teich mit klarem kühlem Wasser, lieblich anzuschauen, blank, herrlich gelegen, entzückend, in einer menschenleeren Gegend läge und kein Mensch wäre da, keiner tränke, keiner badete, keiner machte Gebrauch von ihm. Ganz ebenso ist es, wenn einer, der kein wahrer Mensch ist, zu großem Vermögen kommt: Dann macht er es damit sich selber nicht angenehm und befriedigend, macht es Frau und Kind, den Eltern, Freunden und Gefährten nicht angenehm und befriedigend, und den brahmisch Lebenden und Pilgern gibt er keine Spenden. Wenn es sich so verhält, großer König, werden die Reichtümer nicht richtig genutzt, sondern zugrundegerichtet und dienen nicht als Mittel zur Befriedigung.
+> Wenn aber ein wahrer Mensch (_sappuriso_) zu großem Vermögen kommt, dann macht er es damit sich selbst angenehm und befriedigend, macht es Frau und Kind, Eltern, Freunden und Gefährten angenehm und befriedigend, und den brahmisch Lebenden und Pilgern gibt er Spenden, die das geistige Wohl fördern, zum Himmel führen, Wohl heranreifen lassen, Segen bringen. Dessen Besitz wird richtig genutzt, statt daß ihn die Könige beschlagnahmen oder Diebe stehlen oder das Feuer verzehrt oder Wasser wegschwemmt oder ungeliebte Erben ihn an sich nehmen. Wenn es sich so verhält, großer König, werden die Reichtümer richtig genutzt als Mittel zur Befriedigung und werden nicht zugrundegerichtet. Das ist, wie wenn bei einem Dorf oder einer Stadt ein Teich läge mit klarem kühlem Wasser, lieblich anzuschauen, blank, herrlich gelegen, entzückend, und die Menschen kämen und tränken daraus, badeten darin, machten Gebrauch von ihm. Ganz ebenso ist es, wenn einer, der ein wahrer Mensch ist, zu großem Vermögen kommt.
+> 
+> Wie wenn in menschenleerer Öde Wasser verdunstete, von niemandem getrunken,  
+> so ist's, wenn einer von erlangter Habe sich selbst nichts gönnt und anderen nichts abgibt.  
+> Wenn ein Verständ'ger, Kluger zu Besitz kommt, genießt<sup>28</sup> er ihn, tut seine Schuldigkeit:  
+> Er unterstützt als Vorbild seine Nächsten, steigt tadelfrei zu Himmelswelten auf.«
+
+**RUTH:** Erstaunlich, daß der Buddha es hier sogar als Kennzeichen eines wahren Menschen bezeichnet, daß er Besitz zur Befriedigung verwendet! Vor unseren Gesprächen hätte ich erwartet, der Buddha sagt, Nachfolger, die leider immer noch nicht ohne sinnliche Befriedigung auskämen, sollten diese Schwäche schnellstens überwinden. Bis dahin müßten sie sich wenigstens auf das für ihren inneren Haushalt unerläßliche Minimum beschränken und die Befriedigung durch Scham über ihr Versagen sofort wieder aufheben. Das Wort »Genießen« in einem anderen als tadelnden Sinn hätte ich früher nicht in einer Rede des Buddha erwartet. Steht denn da wirklich »Genießen« oder heißt es vielleicht nur neutral »gebrauchen«?
+
+**FRITZ:** Vorab eines, damit es ja kein Mißverständnis gibt: Hier geht es wahrlich um kein Epikuräertum, sondern nur um eine praktische Lebenshilfe für die Sinnlichkeitsebene bis zum
+
+***
+<sup>26</sup> _sukheti, pīneti_.  
+<sup>27</sup> _pari-bhoga_: material for enjoyment (PED).  
+<sup>28</sup> _bhuñjati_.
+
+212
+<!-- PAGE_END: 212 -->
