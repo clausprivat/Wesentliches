@@ -1,30 +1,47 @@
 <!-- PAGE_START: 242 -->
-**HANS:** Der Nonnen? Ich denke, du willst zeigen, wie der Buddha den Nachfolgern in der Häuslichkeit das Elend der Sinnensucht gezeigt hat?
-
-**FRITZ:** Darum geht es auch. Das eine junge Mädchen ist schon Nonne, spricht die Verse aber zu einem Mann, der in sie verliebt ist. Das andere Mädchen spricht am Hochzeitstag Eltern und Bräutigam mit Gleichnissen über die Sinnensucht in einer Kurzform an, die bei ihren Gesprächspartnern deren Kenntnis voraussetzt. So verbreitet waren diese »Bilder der Existenz« damals schon. Etliche werden wir noch in einem Gespräch des Buddha mit dem Hausvater Potaliyo in **M 54** kennenlernen. Sie zeigen, daß allen Beteiligten die von selber nie endende Fortdauer des »Lebens« und die Existenz auch anderer als der mit gewöhnlichen menschlichen Sinnen wahrnehmbaren Daseinsbereiche eine sichere Lebenstatsache war. – Mit den nachstehenden, stellenweise schockierend klingenden Strophen greifen wir im Geist unserem Triebehaushalt weit voraus. Wer bereit ist, sich diesem Ungewohnten zu stellen, für den können die Strophen eine Ahnung von den tiefen Gründen für die völlig andere Blickweise der Hauslosen und den dadurch bedingten Unterschied der Gangart in Askese und Hausleben eröffnen. In der ersten Versfolge tritt einer jungen Nonne ein glühend in sie Verliebter in den Weg und macht ihr einen Heiratsantrag: Daraus will ich hier nur fünf Kernverse vorlesen, die zeigen, wie sich dieser Körper aus der von Blendung durch Sinnensucht befreiten Blickweise ausnimmt:
-
-#### SUBHA IN JIVAKAS MANGOHAIN (Therīgāthā 366–399)<sup>4</sup>
-> 390 Hab sie gesehn, die bunte Marionette, gemacht aus einem Pflock von jungem Stabholz, mit Schnüren vielfach an ein Führungsjoch geknüpft, daß man sie tanzen lassen kann.
-> 391 An diesem hochgezognen Führungsholz, das, wenn man's losläßt, leer zusammenfällt, ist nichts zu finden: ist gemacht aus Stücken. Wer könnte darauf seinen Geist denn gründen!
-> 392 Mit derlei Gliedern hab ich nichts zu tun, da ich von dieser Art von Denken fern. Und weil sie ohne Denken nichts bewegen – wer könnte darauf seinen Geist denn gründen!
-> 393 Wie ein Gebilde, das aus gelben Flecken auf einer Wand erscheint, so sieh es an. Vor diesem Blick für die Vergänglichkeit ist alle Menschenweisheit völlig nichtig.
-> 394 Hältst du für echt die täuschende Erscheinung, wie Träumende den goldnen Trugbaum, dann fällst du blind auf leeren Schein herein wie mit der Menge auf ein Gaukelspiel.
-
-**RUTH:** So fremd und fern mir das ist: von welcher Größe muß diese junge Nonne gewesen sein!
-
-**FRITZ:** Solchen entlarvenden Anblicken sind wir zur Zeit nur gewachsen, solange wir gerade auf der Wahrheitsebene sind. Man muß sie sich von dort aus öfter vor Augen geführt haben, um ihnen besser gewappnet gegenüberzustehen.
-
-**HANS:** Gut, daß solche Größe keine Bedingung für das Leben nach der Lehre in der Häuslichkeit ist, sonst müßten wir gleich aufgeben.
-
-**RUTH:** Dann laß uns doch auch den anderen Bericht hören.
-
-**FRITZ:** Gern. Er heißt
-
-#### SUMEDHĀ (Therīgāthā 448–552)
-> 448 Im Schlosse zu Mantāvati als Tochter König Koncos und der ersten Gemahlin wuchs Sumedhā auf, der Lehrnachfolge innig zugetan,
-
-***
-<sup>4</sup> Ich gehe von der in Appendix II der PTS-Ausgabe abgedruckten Alsdorfschen Anordnung der Verse als sog. Ariya-Strophen aus.
+*449 in Tugend reif, in Worten herzlich, hört' viel des Wachen Lehre, wohlgeübt.
+Sie ging zu ihren Eltern, sprach zu ihnen: »Bitte hört mich beide an:
+450 Nirvana geht mir über alles. Dasein ist unbeständig, sei's auch himmlisch.
+Was soll da eitle Sinnenlust, so arm an Labsal und so voll von Qual!
+451 Die Sinnensüchte beißen scharf wie eine Schlange und sie lähmen Toren,
+die lang der Höllenwelt verfallen und vom Schmerz besessen sind.
+452 Um böses Karma klagt im Absturz, wer sich leichthin von seiner üblen Denkart
+beherrschen ließ in Taten und im Wort und auch im Geiste als ein Tor.
+453 Die Toren ohne klaren Blick sind unbedacht im Leidensgrund gefangen.
+Sie wissen von der Lehre nichts. Die Heilswahrheiten können sie nicht fassen.
+454 Die aus der allerhöchsten Wachheit gewies'ne Wahrheit kennt die Mehrheit nicht.
+Das Dasein, das genießen sie, erstreben Wiederkehr in Götterwelten.
+455 Doch selbst die Wiederkehr bei Göttern hat nicht Bestand im dauerlosen Dasein.
+Die Toren aber schaudert nicht vorm immer neu Geborenwerden müssen.
+457 Laßt mich drum aus dem Hause ziehn, vom Wort des zehnfach Mächtigen geführt.
+Will frei von aller Bindung ringen um Überwindung von Geburt und Tod.
+458 Was hilft Befriedigung am Dasein, das Unglück eines wesenlosen Körpers!
+Ich will den Daseinsdurst bezwingen. Erlaubt mir, dazu aus dem Haus zu gehn!
+459 Der Wachen Zeichen leuchten auf, es weicht die Nacht, die Stunde ist gekommen:
+die Tugenden, der Weg zum Heil - in diesem Leben darf ich's nicht versäumen!«
+460 Und weiter sprach Sumedhā nun: »Ihr lieben Eltern: Nahrung nehme ich
+nicht mehr zu mir, solange ich im Haus, in der Gewalt des Todes bin.«
+461 Die Mutter weinte voller Schmerz. Schwer atmete der Vater. Tief getroffen,
+versuchte er sie umzustimmen, die im Palaste ihm zu Füßen lag:
+462 »Steh auf, mein Kind! Was soll das Klagen: Bist doch verlobt nach Varanavati.
+Dem Könige Anīkaratto, dem liebenswürdigen, bist du versprochen.
+463 Du wirst die erste Königin, Anīkarattos Gattin, eines Königs! -
+Die Tugenden, der Reinheitspfad, Hauslosigkeit - ach, das ist schwer, mein Kind!
+464 Beim König, da ist Reichtum, Macht, Hoheit, Vermögen, Glück. Du bist noch jung.
+Genieße Sinnenlust und Reichtum und halte Hochzeit, du mein liebes Kind!«
+465 Sumedhā aber gab zur Antwort: »Nur das nicht! Was entsteht, ist ohne Kern!
+Entweder zieh ich hauslos fort oder ich sterbe. Hochzeit halt ich nicht.
+466 Was ist denn dieser faule Leib - unschön, nach Ausfluß riechend, grauses Aas -,
+was ist er anders als ein Hautsack, der voller Abfall ist und ständig tröpfelt!
+467 Was soll denn mir, die das durchschaut, dies widerliche Fleisch- und Blutbefleckte,
+der Würmer, Geier, Vögel Fraß: Wem ist er denn versprochen, dieser Körper?
+468 Zum Leichenplatz gebracht wird schnell der Körper, wenn Erfahrung ihn verläßt,
+wird fortgeworfen wie ein Holzstück; selbst die Verwandten ekeln sich vor ihm.
+472 Häufung, Gegebenheit und Feld: So nennt man dies geburtverwurzelt Leiden.
+Ich hab's von Grund aus durchgeprüft: Wie könnte ich da Hochzeit halten wollen!
+5 Zu den khandha (Häufungen) vgl. Abschnitt II des 2. Gesprächs. Dhātu (die eingebildeten – sozusagen
+als Axiome – angewendeten Gegebenheiten) und ayatana (Erlebensbereiche, Erlebnis-Spannungsfelder);
+werden im 11. Gespräch erklärt.*
 
 242
 <!-- PAGE_END: 242 -->

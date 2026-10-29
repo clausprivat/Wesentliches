@@ -1,29 +1,23 @@
 <!-- PAGE_START: 241 -->
-trauen hat. Welche fünf? Wenn wahre Menschen in der Welt freundschaftlichen Umgang pflegen / sich jemanden annehmen / von jemandem etwas entgegennehmen / die Lehre darlegen, dann zuerst bei einem Vertrauensvollen, nicht so leicht bei einem Vertrauenslosen. Der Vertrauensvolle gelangt nach dem Absterben des Körpers, jenseits des Todes auf selige Bahn, in himmlisches Dasein. Diese fünf segensreichen Eigenschaften sind bei einem Sohn aus einer Familie zu finden, der Heilsvertrauen hat. – Es ist, wie wenn auf gutem Boden an der Kreuzung vierer Straßen ein mächtiger Feigenbaum steht, der den Vögeln eine Zuflucht bietet: Ebenso ist ein Sohn aus einer Familie, der Heilsvertrauen hat, eine Zuflucht für viele Menschen, für Mönche und Nonnen, für häuslich lebende Anhänger und Anhängerinnen.
-> 
-> Mächt'ger Baum mit voller Krone, reichbelaubt, mit dichtem Astwerk,  
-> tiefen Wurzeln, fruchtbehangen, bietet Vögeln eine Stätte.  
-> Und in seinem heitern Raume weilen sie auf ihren Flügen;  
-> Schatten finden Schattensucher, Früchte finden Früchtepflücker.  
-> So ist's bei dem tugendreifen Menschen voller Heilsvertrauen,  
-> ohne Wirbel, ohne Starrsinn, milde, freundlich, sanft: Da weilen  
-> Gierbefreite, Haßbefreite und von Blendung Freigeword'ne,  
-> der Beeinflussung Entwachs'ne, machen bestes Wirken möglich.  
-> Denn sie zeigen ihm die Lehre, alles Leiden zu vertreiben,  
-> die den, der sie ganz verstanden, völlig stillt, einflußentwachsen.«
+*HANS: Der Nonnen? Ich denke, du willst zeigen, wie der Buddha den Nachfolgern in der Häuslichkeit das Elend der Sinnensucht gezeigt hat?
+FRITZ: Darum geht es auch. Das eine junge Mädchen ist schon Nonne, spricht die Verse aber zu einem Mann, der in sie verliebt ist. Das andere Mädchen spricht am Hochzeitstag Eltern und Bräutigam mit Gleichnissen über die Sinnensucht in einer Kurzform an, die bei ihren Gesprächspartnern deren Kenntnis voraussetzt. So verbreitet waren diese Bilder der Existenz damals schon. Etliche werden wir noch in einem Gespräch des Buddha mit dem Hausvater Potaliyo in M 54 kennenlernen. Sie zeigen, daß allen Beteiligten die von selber nie endende Fortdauer des Lebens und die Existenz auch anderer als der mit gewöhnlichen menschlichen Sinnen wahrnehmbaren Daseinsbereiche eine sichere Lebenstatsache war. - Mit den nachstehenden, stellenweise schockierend klingenden Strophen greifen wir im Geist unserem Triebehaushalt weit voraus. Wer bereit ist, sich diesem Ungewohnten zu stellen, für den können die Strophen eine Ahnung von den tiefen Gründen für die völlig andere Blickweise der Hauslosen und den dadurch bedingten Unterschied der Gangart in Askese und Hausleben eröffnen. In der ersten Versfolge tritt einer jungen Nonne ein glühend in sie Verliebter in den Weg und macht ihr einen Heiratsantrag: Daraus will ich hier nur fünf Kernverse vorlesen, die zeigen, wie sich dieser Körper aus der von Blendung durch Sinnensucht befreiten Blickweise ausnimmt:
 
-**HANS:** Die Heiterkeit auf den Zügen echter Nachfolger ist also vereinbar damit, daß der Buddha auf der Wahrheitsebene die Sinnensucht als Suchtkrankheit zeigt!
+SUBHA IN JIVAKAS MANGOHAIN (Thig 366-399).
+390 Hab sie gesehn, die bunte Marionette, gemacht aus einem Pflock von jungem Stabholz, mit Schnüren vielfach an ein Führungsjoch geknüpft, daß man sie tanzen lassen kann.
+391 An diesem hochgezognen Führungsholz, das, wenn man's losläßt, leer zusammenfällt, ist nichts zu finden: ist gemacht aus Stücken. Wer könnte darauf seinen Geist denn gründen!
+392 Mit derlei Gliedern hab ich nichts zu tun, da ich von dieser Art von Denken fern. Und weil sie ohne Denken nichts bewegen wer könnte darauf seinen Geist denn gründen!
+393 Wie ein Gebilde, das aus gelben Flecken auf einer Wand erscheint, so sich es an. Vor diesem Blick für die Vergänglichkeit ist alle Menschenweisheit völlig nichtig.
+394 Hältst du für echt die täuschende Erscheinung, wie Träumende den goldnen Trugbaum, dann fällst du blind auf leeren Schein herein wie mit der Menge auf ein Gaukelspiel.
 
-**RUTH:** Oder gründet sie gar in dieser Klarheit?
+RUTH: So fremd und fern mir das ist: von welcher Größe muß diese junge Nonne gewesen sein!
+FRITZ: Solchen entlarvenden Anblicken sind wir zur Zeit nur gewachsen, solange wir gerade auf der Wahrheitsebene sind. Man muß sie sich von dort aus öfter vor Augen geführt haben, um ihnen besser gewappnet gegenüberzustehen.
+HANS: Gut, daß solche Größe keine Bedingung für das Leben nach der Lehre in der Häuslichkeit ist, sonst müßten wir gleich aufgeben.
+RUTH: Dann laß uns doch auch den anderen Bericht hören.
+FRITZ: Gern. Er heißt
 
-**FRITZ:** Auch darauf geben die Texte Antwort. Denken wir an **M 14**.
-
-**HANS:** Die fand ich ganz realistisch, besonders die packenden Bilder, wie jeder mit jedem streitet – bedingt durch sinnliches Begehren. Ich muß fast jeden Abend daran denken, wenn ich in den Nachrichten die Konflikte in aller Welt sehe. Da müßte doch jeder das Elend der Sinnensucht sehen und stiller werden!
-
-**FRITZ:** Das Elend sehen viele, aber nicht, daß dahinter die Sinnensucht steht. Die Ursachen werden bei den »anderen« gesucht. Um sie in mir selber, in der Beschaffenheit meines Herzens zu sehen, dessen Aktivität ja die Wahrnehmung all dieser Elendsbilder ist, muß ich eine tiefere Blickweise erwerben. Ansätze dazu finden sich in allen Kulturen. Lange vor dem Buddha hieß es in der *Bhagavadgītā*: »Wer oft an sinnliche Genüsse denkt, der hängt sein Herz daran; aus solchem Hang entsteht Begierde; die Begierde wächst zur wilden Leidenschaft; die Leidenschaft verblendet ihn, löscht die Erinnerung an reines Glück, das er einst fühlte, aus. Wenn dieses innere Gefühl verstummt, hört der Wille auf, Gutes zu tun. Dann aber geht der ganze Mensch zugrund.« Diese andere Blickweise – zu der Heilsgänger auf der Wahrheitsebene fähig sind – ist anfangs sehr ungewohnt, für manche gar schockierend, aber sie ist, wie du sagst, realistisch bis zum Grund. Sie führt daher, wie Ruth sagt, zu der sicheren Heiterkeit, die auch aus dem Gespräch mit Vater Nakulā spricht, und man findet sie heute noch in manchen buddhistischen Freundeskreisen über Jahre hinweg. Diese unerschütterliche Festigkeit und Heiterkeit hat mich schon vor Jahrzehnten ergriffen. Solche Ergriffenheit spürte nach **A IX,41** auch Tapusso, als ihm klar wurde, daß junge Mönche Frieden und Befreiung gerade im Zurücktreten von den Sinnendingen fanden. Beispiele finden wir auch in den Strophen der Nonnen.<sup>3</sup>
-
-***
-<sup>3</sup> *Therīgāthā*; KEN übersetzt *Lieder der Nonnen*, was aber mißverstanden werden könnte, es handle sich um gesungene Verse.
+SUMEDHA - Thig 448-552.
+448 Im Schlosse zu Mantāvati als Tochter König Koncos und der ersten Gemahlin wuchs Sumedhā auf, der Lehrnachfolge innig zugetan,
+4 Ich gehe von der in Appendix II der PTS-Ausgabe abgedruckten Alsdorfschen Anordnung der Verse als sog. Ariya-Strophen aus.*
 
 241
 <!-- PAGE_END: 241 -->

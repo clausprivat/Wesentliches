@@ -1,18 +1,45 @@
 <!-- PAGE_START: 248 -->
-**HANS:** Bei Neumann steht nichts von Leitbild, nur: »Kein Wesen töten, läßt vom Töten der Wesen abstehen.« Aber was soll ich mit so einer Binsenwahrheit anfangen: »Wer nicht töten will, soll es halt bleiben lassen«?
-
-**FRITZ:** Du hast ganz recht. Neumanns Übersetzung schöpft den Text nicht aus. Eine wörtliche Übersetzung des Satzes<sup>12</sup> müßte etwa lauten: »durch Gestütztsein auf Nichttöten ist Töten zu überwinden.« Dieses »Gestütztsein« ist eine geistige Einstellung, nicht nur das körperliche Unterlassen. Wenn ein zu Lebenslänglich Verurteilter, dessen Gnadengesuch abgelehnt ist, in der Zelle seinen Rachegedanken gegen den Komplizen nachhängt, der ihn verpfiffen hat, und sich ausmalt, wie er ihm den Garaus macht, dann tötet er nicht körperlich, aber durch dieses häufige Denken und Sinnen mehrt er seinen Tötungsdrang unter Umständen so sehr, daß er – wenn er doch noch freikommt – gar nicht widerstehen kann, ihn umzubringen. Nichttöten ist also hier nicht nur das bloße rein äußerliche Unterlassen, sondern daß er Nichttöten als geistiges Leitbild hat. Erst dann ist er auf Nichttöten »gestützt«. Deshalb habe ich hier für das Pāliwort *nissāya* (= »gestützt«) die Übersetzung des Buddhistischen Seminars »unter dem Leitbild« übernommen. Entsprechend sind auch alle anderen Mittel übersetzt, die zum »Ablösen der Weltbezüge« führen:
-
-> Unter dem Leitbild, nur Gegebenes zu nehmen, kann man vom Nehmen von Nichtgegebenem loskommen. Das ist gesagt worden. Und warum ist das gesagt worden? Da führt sich der Heilsgänger vor Augen: Solche Verstrickungen, durch die bedingt ich zum Dieb werden könnte, solche Verstrickungen aufzulösen und ganz auszutilgen: dabei bin ich. Denn wenn ich zum Dieb würde, dann müßte ich mich selber wegen des Nehmens von Nichtgegebenem verachten und auch Verständige müßten mich tadeln wegen des Nehmens von Nichtgegebenem, und nach dem Absterben des Körpers, jenseits des Todes stünde mir wegen des Nehmens von Nichtgegebenem der Abweg bevor. Das ist ja gerade eine Verstrickung und Hemmung, dieses Nehmen von Nichtgegebenem, und was durch das Nehmen von Nichtgegebenem an verstörenden und brennenden Beeinflussungen aufkommen würde, das gibt es für einen, dessen Wesen das Nehmen von Nichtgegebenem widerstrebt, nicht mehr. – Das ist der Sinn des Satzes: Unter dem Leitbild, nichts Nichtgegebenes zu nehmen, kann man vom Nehmen von Nichtgegebenem loskommen.
-> 
-> Unter dem Leitbild der Wahrhaftigkeit kann man vom Lügen loskommen. Das ist gesagt worden. Und warum ist das gesagt worden? Da führt sich der Heilsgänger vor Augen: Solche Verstrickungen, durch die bedingt ich zum Lügner werden könnte, solche Verstrickungen aufzulösen und ganz auszutilgen: dabei bin ich. Denn wenn ich zum Lügner würde, dann müßte ich mich selber wegen des Lügens verachten, und auch Verständige müßten mich tadeln wegen des Lügens, und nach dem Absterben des Körpers, jenseits des Todes stünde mir wegen des Lügens der Abweg bevor. Das ist ja gerade eine Verstrickung und Hemmung, dieses Lügen, und was durch das Lügen an verstörenden und brennenden Beeinflussungen aufkommen würde, das gibt es für einen, dessen Wesen das Lügen widerstrebt, nicht mehr. – Das ist der Sinn des Satzes: Unter dem Leitbild der Wahrhaftigkeit kann man vom Lügen loskommen.
-> 
-> Unter dem Leitbild der nicht entzweienden Rede kann man vom Hintertragen loskommen. Das ist gesagt worden. Und warum ist das gesagt worden? Da führt sich der Heilsgänger vor Augen: Solche Verstrickungen, durch die bedingt ich zum Zwischenträger werden könnte, solche Verstrickungen aufzulösen und ganz auszutilgen: dabei bin ich. Denn wenn ich zum Zwischenträger würde, dann müßte ich mich selber wegen des Hintertragens verachten, und auch Verständige müßten mich tadeln wegen des Hintertragens, und nach dem Absterben des Körpers, jenseits des Todes stünde mir wegen des Hintertragens der Abweg bevor. Das ist ja gerade eine Verstrickung und Hemmung, dieses Hintertragen, und was durch das Hintertragen an verstörenden und brennenden Beeinflussungen aufkommen würde, das gibt es für einen, dessen Wesen das Hintertragen widerstrebt, nicht mehr. – Das ist der Sinn des Satzes: Unter dem Leitbild der nicht entzweienden Rede kann man vom Hintertragen loskommen.
-> 
-> Unter dem Leitbild kein geierhaftes sinnliches Begehren!<sup>13</sup> kann man von geierhaftem sinnlichem
-
-***
-<sup>13</sup> *a-giddhi-lobha*; *giddhi* – Gieren hängt mit *gijjhati* zusammen, davon ist *gijjha* = »Geier« abgeleitet. Diese Gier ist also so stark wie die des ganz auf das Aas fixierten Geiers.
+*Unter dem Leitbild der Wahrhaftigkeit kann man vom Lügen loskommen. Das ist gesagt worden.
+Und warum ist das gesagt worden? Da führt sich der Heilsgänger vor Augen: Solche Verstrickungen, durch
+die bedingt ich zum Lügner werden könnte, solche Verstrickungen aufzulösen und ganz auszutilgen: dabei
+bin ich. Denn wenn ich zum Lügner würde, dann müßte ich mich selber wegen des Lügens verachten, und
+auch Verständige müßten mich tadeln wegen des Lügens, und nach dem Absterben des Körpers, jenseits des
+Todes stünde mir wegen des Lügens der Abweg bevor. Das ist ja gerade eine Verstrickung und Hemmung,
+dieses Lügen, und was durch das Lügen an verstörenden und brennenden Beeinflussungen aufkommen wür-
+de, das gibt es für einen, dessen Wesen das Lügen widerstrebt, nicht mehr. - Das ist der Sinn des Satzes:
+Unter dem Leitbild der Wahrhaftigkeit kann man vom Lügen loskommen.
+Unter dem Leitbild der nicht entzweienden Rede kann man vom Hintertragen loskommen. Das ist
+gesagt worden. Und warum ist das gesagt worden? Da führt sich der Heilsgänger vor Augen: Solche Ver-
+strickungen, durch die bedingt ich zum Zwischenträger werden könnte, solche Verstrickungen aufzulösen und
+ganz auszutilgen: dabei bin ich. Denn wenn ich zum Zwischenträger würde, dann müßte ich mich selber
+wegen des Hintertragens verachten, und auch Verständige müßten mich tadeln wegen des Hintertragens, und
+nach dem Absterben des Körpers, jenseits des Todes stünde mir wegen des Hintertragens der Abweg bevor. Das
+ist ja gerade eine Verstrickung und Hemmung, dieses Hintertragen, und was durch das Hintertragen an
+verstörenden und brennenden Beeinflussungen aufkommen würde, das gibt es für einen, dessen Wesen das
+Hintertragen widerstrebt, nicht mehr. - Das ist der Sinn des Satzes: Unter dem Leitbild der nicht entzwei-
+enden Rede kann man vom Hintertragen loskommen.
+Unter dem Leitbild kein geierhaftes sinnliches Begehren13 kann man von geierhaftem sinnlichem
+Begehren loskommen. Das ist gesagt worden. Und warum ist das gesagt worden? Da führt sich der Heils-
+gänger vor Augen: Solche Verstrickungen, durch die bedingt ich zum Geiergierigen werden könnte, solche Ver-
+strickungen aufzulösen und ganz auszutilgen: dabei bin ich. Denn wenn ich zum Geiergierigen würde, dann
+müßte ich mich selber wegen der Gier verachten, und auch Verständige müßten mich tadeln wegen der Geier-
+gier, und nach dem Absterben des Körpers, jenseits des Todes stünde mir wegen dieser Sucht der Abweg bevor.
+Das ist ja gerade eine Verstrickung und Hemmung, diese Geiergier, und was durch Geiergier an Beeinflus-
+sungen aufkommen würde, das gibt es für einen, dessen Wesen Geiergier widerstrebt, nicht mehr. - Das ist
+der Sinn des Satzes: Unter dem Leitbild der Mäßigung der Geiergier kann man von Geiergier loskommen.
+Unter dem Leitbild der Freiheit von Nörgeln und Zanken kann man vom Nörgeln und Zanken
+loskommen. Das ist gesagt worden. Und warum ist das gesagt worden? Da führt sich der Heilsgänger vor
+Augen: Solche Verstrickungen, durch die bedingt ich zum Nörgler und Zänker werden könnte, solche Ver-
+strickungen aufzulösen und ganz auszutilgen: dabei bin ich. Denn wenn ich zum Nörgler und Zänker wür-
+de, dann müßte ich mich selber wegen des Nörgelns und Zankens verachten, und auch Verständige müßten
+mich tadeln wegen des Nörgelns und Zankens, und nach dem Absterben des Körpers, jenseits des Todes stünde
+mir wegen des Nörgelns und Zankens der Abweg bevor. Das ist ja gerade eine Verstrickung und Hemmung
+dieses Nörgeln und Zanken; und was durch Nörgeln und Zanken an verstörenden und brennenden Beein-
+flussungen aufkommen würde, das gibt es für einen, dessen Wesen das Nörgeln und Zanken widerstrebt, nicht
+mehr. - Das ist der Sinn des Satzes: Unter dem Leitbild der Freiheit von Nörgeln und Zanken kann man
+vom Nörgeln und Zanken loskommen.
+13 a-giddhi-lobha; giddhi - Gieren hängt mit gijjhati zusammen, davon ist gijjha = »Geier« abgeleitet. Diese
+Gier ist also so stark wie die des ganz auf das Aas fixierten Geiers.*
 
 248
 <!-- PAGE_END: 248 -->
