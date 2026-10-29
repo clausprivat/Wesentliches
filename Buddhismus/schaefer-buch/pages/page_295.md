@@ -1,0 +1,22 @@
+<!-- PAGE_START: 295 -->
+#### Ud VIII,8
+> So hab ich's vernommen: Einstmals weilte der Erhabene in Sāvatthī im Ostkloster in Mutter Migāros Halle. Damals war gerade Visākhā, der Mutter Migāros, eine Enkelin gestorben, die sie sehr lieb hatte. Da begab sie sich mitten am Tage mit nassem Gewand und nassen Haaren (dem Zeichen der Trauer) zum Erhabenen, begrüßte den Erhabenen ehrerbietig und setzte sich zur Seite. Da sprach der Erhabene zu ihr: »Warum kommst du mitten am Tag mit nassem Gewand und nassen Haaren, Visākhā?« – »Herr, mir ist eine Enkelin gestorben, die ich sehr, sehr lieb hatte.« – »Möchtest du gern so viele Kinder haben, wie Sāvatthī Einwohner hat, Visākhā?« – »Gern hätte ich so viele Kinder wie Sāvatthī Einwohner hat, Herr.« – »Wieviele Menschen sterben wohl täglich in Sāvatthī, Visākhā?« – »Manchmal zehn Menschen am Tag, Herr, manchmal auch neun oder acht oder sieben oder sechs oder einer – ohne sterbende Menschen ist Sāvatthī nie, Herr.« – »Was meinst du, Visākhā, wärst du da jemals ohne nasses Gewand und ohne nasse Haare?« – »Das nicht, Herr, allein die vielen Kinder und Enkel würden dazu genügen.« – »Wer Vorliebe (*pema*) für hundert hat, Visākhā, der hat hundert Leiden; wer Vorliebe für neunzig hat, der hat neunzig Leiden; wer Vorliebe für achtzig / siebzig / sechzig / fünfzig / vierzig / dreißig / zwanzig / zehn hat, hat achtzig / siebzig / sechzig / fünfzig / vierzig / dreißig / zwanzig / zehn Leiden; wer Vorliebe für fünf / vier / drei / zwei hat, der hat fünf / vier / drei / zwei Leiden; wer Vorliebe für einen hat, hat ein Leiden; wer für niemanden Vorliebe hat, hat kein Leiden, ist frei von Kummer, Trauer, Auflehnung, sage ich:
+> 
+> Was es an Kummer gibt und Aufbegehren, an Leiden aller Art auf dieser Welt –
+> Vorliebe ist der Grund von alledem. Vorliebe – gäb's die nicht, so wär das nicht.
+> Wie selig sorgenfrei ist darum der, der nirgends in der Welt Vorlieben hat.
+> Wer frei von Kummer und Betrübnis sein will: Vorliebe heg' er nirgends in der Welt.«
+
+**RUTH:** Das ist ja der gleiche Gedanke, wie ihn der Buddha dem Vater zu bedenken gegeben hatte, dem sein Bübchen gestorben war. Nur hat ihn Visākhā nach anfänglicher Blendung durch ihre Kinderliebe eingesehen.
+
+**FRITZ:** Dabei hatte sie schon, nachdem sie den Buddha zum ersten Mal gehört hatte, den Stromeintritt erlangt,<sup>36</sup> und auch sie wird in **A I,25** vom Buddha unter den Spitzen der Jüngerschaft genannt. Wir brauchen uns also nicht zu beunruhigen, wenn wir unter den erschwerten Bedingungen des Hauslebens immer wieder vorübergehend von der Wahrheitsgegenwart abkommen. Wir können uns deshalb vorstellen, welche Ruhe und Klarheit durch den liebevollen Hinweis des Erwachten auf die Realität bei Visākhā eingekehrt ist. Solche klare Sicht läßt auf die Dauer beim Heilsgänger kein totales Untertauchen in häuslicher »Stallwärme« mehr bestehen.
+
+Ähnlichen Trost empfing König Pasenadi bei zwei Trauerfällen. Über den einen berichtet die Rede **DIE GROSSMUTTER – S 3,22**:
+
+> Auch er kam zur Tagesmitte zum Erwachten. Der Erwachte fragte: »Warum kommst du mitten am Tag, großer König?« – »Meine Großmutter ist gestorben, Herr; alt, hochbetagt, greis. Sie hat ihre Tage vollendet. Nun ist sie dahin, heimgegangen im Alter von hundertzwanzig Jahren. Aber ich hatte meine Großmutter sehr, sehr lieb. Meinen besten Elefanten, mein bestes Pferd, mein bestes Dorf, meine liebste Provinz würde ich dafür geben, wenn ich damit erkaufen könnte, daß mir die Großmutter nicht weggestorben wäre.« – »Alle Wesen, großer König, sind dem Gesetz des Sterbens unterworfen, treffen im Tod an eine Grenze, können dem Tod nicht entgehen.« – »Wunderbar, Herr, unvergleichlich, Herr, wie wahr der Erhabene das gesagt hat: Alle Wesen sind dem Gesetz des Sterbens unterworfen, treffen im Tod an eine Grenze, können dem Tod nicht entgehen.« – »So ist es, großer König. So ist es, großer König: Alle Wesen sind dem Gesetz des Sterbens unterworfen, treffen im Tod an eine Grenze, können dem Tod nicht entgehen. Wie alle Töpferware, gebrannt oder ungebrannt, mit gesetzmäßiger Zwangsläufigkeit zerbrechen muß, in Scherben endet, dem Zerbrechen nicht entgehen kann, genauso, großer König, sind alle Wesen dem Gesetz des Sterbens unterworfen, treffen im Tod an eine Grenze, können dem Tod nicht entgehen.
+
+***
+<sup>36</sup> *Proper Names*, S. 900.
+
+295
+<!-- PAGE_END: 295 -->
