@@ -1,0 +1,19 @@
+<!-- PAGE_START: 316 -->
+> Den vierten lege er beiseit als Rückhalt für den Fall der Not.
+
+**HANS:** Erst hatte ich gedacht: Obwohl der junge Siṅgālako durch das treue Befolgen des vaterlichen Willens zeigt, daß er eine religiöse Ader hat, ist nur von weltlichen Dingen die Rede. Wo bleibt da die transzendente Dimension? Aber ist mir dann deutlich geworden: Der Buddha hat sogar den Mönchen gesagt, dass gute Freundschaft nicht nur das halbe, sondern das ganze brahmische Leben ist: Zurückhalten vom Schlechten, Hinlenken zum Guten, Erklären der Daseinsrätsel und der Dinge, die über die vordergründige Welt hinausreichen – das alles ist hier ganz auf die guten Freunde verlagert. Von ihnen nimmt ein junger Mensch Ungewohntes leichter an als von den Eltern. Siṅgālako kann sich hier ganz auf eigene Füße gestellt fühlen: Wo ihm selber Erfahrung fehlt, da wird er zum Austausch mit seinen guten Freunden eingeladen.
+
+**FRITZ:** Ja, Hans. Ich kenne junge Menschen, die sich Freundeskreise solcher Art geschaffen haben. Dort besprechen sie alles, was sie in Leid und Freud bewegt. Es ist kaum zu sagen, was – mitten in unserer »schlechten Welt« – dadurch an Gutem, an Zuwendung, Mitempfinden, Verantwortungsgefühl, sauberen Maßstäben – ja geradezu an Weisheit von der Pflege so guter Freundschaften unter jungen Menschen ausgeht. – Jetzt, nach dieser Anleitung ist Siṅgālako reif für die Erklärung, wie er seine Lebenswelt – alle sechs Himmelsrichtungen aus etwas Fremdem, Unheimlichen in einen Schutz verwandeln kann:
+
+> Wie aber gewinnt ein Heilsgänger die sechs Himmelsgegenden als Schutz? Sechs Himmelsgegenden gibt es, die man sich merken muß: Der Osten sind die Eltern. Der Süden sind die Lehrmeister. Der Westen sind Frau und Kind. Der Norden sind Freunde und Gefährten. Unten, das sind die Diener und Arbeiter. Oben, das sind Asketen und das brahmische Leben Führende.
+> 
+> Auf fünf Arten soll ein Sohn der östlichen Gegend, den Eltern entgegenkommen: Sie haben mich erhalten, nun werde ich sie erhalten. Ihre Arbeit werde ich ihnen abnehmen. Der häuslichen Überlieferung werde ich treubleiben. Ihr Erbe werde ich fortführen. Und wenn sie einst dahingegangen, verstorben sind, werde ich die Totenopfer darbringen.
+
+**HANS:** Daß da so uneingeschränkt gesagt wird, er soll der häuslichen Überlieferung treubleiben, wundert mich etwas: Muß er nicht erst prüfen, ob sie auch gut ist. Tradition kann doch zweierlei Ausgang haben. Und das mit den Totenopfern verstehe ich nicht.
+
+**FRITZ:** Die sind heute für uns kein Problem. Die können wir beiseitelassen. Was dem Befolgen von Überlieferungen Grenzen setzt, hat der Erwachte schon umfassend gesagt: Er hat ja vorhin vor den vier Wirkensverderbtheiten und vor dem Begehen übler Taten aus Hinneigung, Abneigung, Blendung, Angst und vor den Mündungen nach abwärts bei Besitz und Genuß gewarnt. Häusliche Überlieferungen, die von diesen Warnungen betroffen sind, wären also nicht zu befolgen. Es geht wohl hier mehr um eingespielte Regeln für das Zusammenleben innerhalb der Familie. Dieser Lebensrat des Buddha betrifft besonders auch die Zeit, in der noch Eltern oder seit langem in der Hausgemeinschaft tätige Menschen – alte Verwandte oder Angestellte – in der Hausgemeinschaft leben. Warum sollen schon zu deren Lebzeiten erprobte Spielregeln geändert werden, nur damit der allgemeine jugendliche Reformeifer sich auf Kosten der Älteren durchsetzt? Die Jüngeren können aus ihrer kürzeren Lebenserfahrung oft den Vorteil der Eingespieltheit noch gar nicht beurteilen, die zwar von allen Rücksicht verlangt, aber dann auch reibungslose Abläufe erleichtert. Änderungen bringen oft nur neue Probleme. Jeder junge Mensch muß ja doch lernen, sich auch in solche Lebenskreise einzufügen, wo nicht alles nach seiner Pfeife tanzt – spätestens im Beruf. Wo sonst kann er das besser lernen als in der Familie?
+
+**HANS:** Ja, das leuchtet mir ein. Du kannst weiterlesen.
+
+316
+<!-- PAGE_END: 316 -->
