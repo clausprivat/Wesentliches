@@ -1,2 +1,19 @@
 <!-- PAGE_START: 352 -->
-(Diese Seite ist im Original leer bzw. enthält nur die Seitenzahl)
+durchhalten kann. Die Meditationen dagegen, die sich aus **M 114** in Fülle ergeben, kann man ebenso wie die sechs unübertrefflichen Erinnerungen auf breiter Basis durchs ganze Leben hindurch betreiben, und nicht nur in stillen Stunden, sondern auch mitten in der Familie und bei der Arbeit. Und das ist so dringend nötig: Wie könnte ich über feinste innere Vorgänge kontinuierlich wachen, wenn ich noch von Fixierung auf Sinnendinge und von Blindheit oder gar bewußter Rücksichtslosigkeit gegenüber meinen Mitwesen besessen bin! Darüber muß ich doch zu allererst wachen! Was mich dabei so anrührt, Fritz: Bei diesen Selbstkontrollen nach **M 114** geht es nicht nur um kalte Achtsamkeit, sondern jedesmal wird auch die Gemütshaltung des Übenden angesprochen: Was Mitwesen verletzt, widerstrebt seinem Wesen, er ist zartfühlend, »voll Mitempfinden«, »Eintracht freut ihn«, er redet »liebevoll«, spricht »zum Ziel helfend«, wünscht den Wesen: »Sie sollen es gut haben!«
+
+**FRITZ:** Ja, Hans. Das erwärmt das Gemüt. Aber nicht daß du denkst, die *satipaṭṭhāna*-Übung der Mönche und Nonnen sei im Gegensatz dazu etwas Kaltes: Reif geübtes *satipaṭṭhāna* ist nichts Kaltes, sondern etwas ganz Stilles, Klares, unerschütterlich Sanftes, das gerade deshalb nur gedeihen kann auf dem Boden eines Herzens, das nicht durch Fixierung auf Sinnendinge, Übelwollen und Wahn gehemmt ist.
+
+**HANS:** Da muß man wohl fast ein Heiliger sein, ehe man für *satipaṭṭhāna* reif ist?
+
+**FRITZ:** Das wäre übertrieben. Aber ein *satipaṭṭhāna*-reifer Mensch muß sich dem Leitbild des »sanften Gemüts« schon erheblich über Menschendurchschnitt angenähert haben. Diese Voraussetzung von *satipaṭṭhāna* ist im Westen weitgehend unbekannt. Demgegenüber betont Nyanaponika im Schlußwort der 2. Auflage seines Buches *Geistestraining durch Achtsamkeit – Die buddhistische Satipatthana-Methode*<sup>50</sup>, daß es sich bei dieser Übung keineswegs »um eine sehr verstandeskühle, nüchterne und dem Sittlichen gegenüber indifferente Lehre handelt, welche die Kultur des Herzens<sup>51</sup> vernachlässigt«. Wie ein solches Mißverständnis entstehen konnte, erklärt Nyanaponika anschließend. Er schreibt, daß der Buddha bei anderen Gelegenheiten, und zwar sehr häufig und eindringlich, von der Sittlichkeit als dem Anfang und der unerläßlichen Grundlage jeder höheren geistigen Entwicklung gesprochen hat. Diese Tatsache war allen Anhängern der Buddha-Lehre bekannt und bedurfte daher in dieser, einem besonderen Gegenstand gewidmeten Lehrrede<sup>52</sup> keiner ausdrücklichen Erwähnung. Sittlichkeit, welche die Beziehungen des Einzelnen zum Mitmenschen regelt, kann wohl durch Gebote, Regeln und Gesetze gestützt und geschützt und durch die Vernunft begründet werden, doch ihre einzig sicheren Wurzeln liegen in einer wahren Kultur des Herzens<sup>53</sup>. Diese findet in der Buddha-Lehre den denkbar vollkommensten Ausdruck in den vier Erhabenen Weilungen oder göttergleichen Zuständen (*brahma-vihāra*), nämlich: Liebe, Mitleid, Mitfreude und Gleichmut. Darüber gibt die buddhistische Literatur genügend Auskunft. Nur dieses sei noch hierzu bemerkt: Es ist ein tiefes Wohlwollen für alles Lebendige oder (in Nyānatilokas schöner Prägung) die All-Güte (*mettā*), welche die Grundlage für die anderen drei Eigenschaften bildet, ebenso wie für jedes Veredlungsstreben. Der Jünger der hier gelehrten Achtsamkeits-Schulung wird daher<sup>54</sup> seine Achtsamkeit zunächst darauf zu lenken haben, daß sein Denken, Sprechen und Handeln nie der uneingeschränkten Güte ermangelt. In diesem Sinne heißt es in dem klassischen buddhistischen Text, dem Lied von der Güte (*Mettā-Sutta*):
+> Voll Güte zu der ganzen Welt entfalte ohne Schranken man den Geist ...
+
+***
+<sup>50</sup> Konstanz (Christiani) 1970, S. 156 f.  
+<sup>51</sup> Hervorhebung im Original.  
+<sup>52</sup> Gemeint ist D 22.  
+<sup>53</sup> Hervorhebung im Original.  
+<sup>54</sup> Nachstehende Hervorhebungen von mir.
+
+352
+<!-- PAGE_END: 352 -->
